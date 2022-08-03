@@ -1,6 +1,5 @@
 2022-06-07 11:51
-Status: #book 
-Tags:
+Status: #blog
 
 Title: Seth's Blog
 Author: Seth Godin
@@ -81,7 +80,7 @@ Hence this short list:
 
 2. The best time to start promoting your book is three years before it comes out. Three years to build a reputation, build a permission asset, build a blog, build a following, build credibility and build the connections you'll need later.
 
-3. Pay for an ~~eidtor~~ editor. Not just to fix the typos, but to actually make your ramblings into something that people will choose to read. I found someone I like working with at the [EFA][http://www.the-efa.org/]. One of the things traditional publishers used to do is provide really insightful, even brilliant editors (people like Fred Hills and Megan Casey), but alas, that doesn't happen very often. And hiring your own editor means you'll value the process more.
+3. Pay for an ~~eidtor~~ editor. Not just to fix the typos, but to actually make your ramblings into something that people will choose to read. I found someone I like working with at the [EFA][http://www.the-efa.org/]. One           of the things traditional publishers used to do is provide really insightful, even brilliant editors (people like Fred Hills and Megan Casey), but alas, that doesn't happen very often. And hiring your own editor means you'll value the process more.
 
 4. Understand that a non-fiction book is a souvenir, just a vessel for the ideas themselves. You don't want the ideas to get stuck in the book... you want them to spread. Which means that you shouldn't hoard the idea! The more you give away, the better you will do.
 
@@ -106,4 +105,62 @@ Hence this short list:
 14. Consider the free PDF alternative. Some have gotten millions of downloads. No hassles, no time wasted, no trying to make a living on it. All the joy, in other words, without debating whether you should quit your day job (you shouldn't!)
 
 15. If you want to reach people who don't normally buy books, show up in places where people who don't usually buy books are. Media places, virtual places and real places too.
+
+16. Most books that sell by the truckload sell by the caseload. In other words, sell to organizations that buy on behalf of their members/employees.
+
+17. Publishing a book is not the same as printing a book. Publishing is about marketing and sales and distribution and risk. If you don't want to be in that business, don't! Printing a book is trivially easy. Don't let anyone tell you it's not. You'll find plenty of printers who can match the look and feel of the bestselling book of your choice for just a few dollars a copy. That's not the hard part.
+
+18. Bookstores, in general, are run by absolutely terrific people. Bookstores, in general, are really lousy businesses. They are often where books go to die. While some readers will discover your book in a store, it's way more likely they will discover the book before they get to the store, and the store is just there hoping to have the right book for the right person at the time she wants it. If the match isn't made, no sale.
+
+19. Writing a book is a tremendous experience. It pays off intellectually. It clarifies your thinking. It builds credibility. It is a living engine of marketing and idea spreading, working every day to deliver your message with authority. You should write one.
+
+Here's the [prequel][http://sethgodin.typepad.com/seths_blog/2005/07/advise_for_auth.html] to this post...
+
+
+##### How to be remarkable (January 7, 2007)
+**1.** 
+Understand the urgency of the situation. Half-measures simply won't do. The only way to grow is to abandon your strategy of doing what you did yesterday, but better. Commit.
+
+**2.**
+Remarkable doesn't mean remarkable to you. It means remarkable to me. Am I going to make a remark about it? If not, then you're average, and average is for losers.
+
+**3.**
+Being noticed is not the same as being remarkable. Running down the street naked will get you noticed, but it won't accomplish much. It's easy to pull off a stunt, but not useful.
+
+**4.**
+Extremism in the pursuit of remarkability is no sin. In fact, it's practically a requirement. People in first place, those considered the best in the world, these are the folks that get what they want. Rock stars have groupies because they're stars, not because they're good looking.
+
+**5.**
+Remarkability lies in the edges. The biggest, fastest, slowest, richest, easiest, most difficult. It doesn't always matter which edge, more that you're at (or beyond) the edge.
+
+**6.**
+Not everyone appreciates your efforts to be remarkable. In fact, most people don't. So what? Most people are ostriches, heads in the sand, unable to help you anyway. Your goal isn't to please everyone. Your goal is to please those that actually speak up, spread the word, buy new things or hire the talented.
+
+**7.**
+If it's in a manual, if it's accepted wisdom, if you can find it in a Dummies book, then guess what? It's boring, not remarkable. Part of what it takes to do something remarkable is to do something first and best. Roger Bannister was remarkable. The next guy, the guy who broke Bannister's record wasn't. He was just faster...but it doesn't matter.
+
+**8.**
+It's not really as frightening as it seems. They keep the masses in line by threatening them (us) with all manner of horrible outcomes if we dare to step out of line. But who loses their jobs at the mass layoffs? Who has trouble finding a new gig? No the remarkable minority, that's for sure.
+
+**9.**
+If you put it on a T-shirt, would people wear it? No use being remarkable at something that people don't care about. Not ALL people, mind you, just a few. A few people insanely focused on what you do is far far better than thousands of people who might be mildly interested, right?
+
+**10.**
+What's fashionable soon becomes unfashionable. While you might be remarkable for a time, if you don't reinvest and reinvent, you won't be for long. Instead of resting on your laurels, you must commit to being remarkable again quite soon.
+
+
+##### You should write an ebook (March 28, 2007)
+I'm serious. Smart people with good ideas worth sharing can get a lot out of this exercise.
+
+It's technically easy and when it works, your idea will spread far and wide. Even better, the act of writing your idea in a cogent, organized way will make your idea better. You can write an ebook about your travel destination, your consulting philosophy or an amazing job you'd like to fill.
+
+Seven (wait, now it's 12) years ago, I wrote a book called [Unleashing the Ideavirus](http://www.amazon.com/exec/obidos/tg/detail/-/0786887176). It's about how ideas spread. In the book I go on about how free ideas spread faster than expensive ones. That's why radio is so important in making music sell.
+
+Anyway, I brought it to my publisher and said, "I'd like you to publish this, but I want to give it away on the net." They passed. They used to think I was crazy, but now they were sure of it. So I decided to just give it away. The first few days, the book was downloaded 3,000 times (note: forgive the layout. It's not what I would do if I was doing it today). The next day, the number went up. And then up. Soon it was 100,00 and then a million. The best part of all is that I intentionally made the file small enough to email. Even without counting the folks who emailed it hundreds of times to co-workers, it's easily on more than 2,000,000 computers. I didn't ask anything in return. No centralized email tool. Here it is. Share it.
+
+A Google search finds more than 200,00 matches for the word 'ideavirus', which I made up. Some will ask, "how much money did you make?" And I think a better question is, "how much did it cost you?" How much did it cost you to write the most popular ebook ever and to reach those millions of people and to do a promotion that drove an expensive hardcover to #5 on Amazon and #4 in Japan and led to translation deals in dozens of countries and plenty of speaking gigs?
+
+It cost nothing.
+
+Changethis, which I dreamed up in a moment of weakness a few years ago, is still going strong under better management now. It's the epicenter of ebook distribution, but there are plenty of places just dying to host your content. And your blog is the best place to launch your idea. The biggest challenge is that there are no barriers. If you want to do it, go do it. Ideas worth spreading, spread.
 

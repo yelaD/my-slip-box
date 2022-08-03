@@ -1150,5 +1150,74 @@ Or you could say "a part" (*meros*)--only a letter's difference. But then you're
 
 15. No matter what anyone says or does, my task is to be good. Like gold or emerald or purple repeating to itself, "No matter what anyone says or does, my task is to be emerald, my color undiminished."
 
+16. The mind doesn't get in its own way. It doesn't frighten itself into desires. If other things can scare or hurt it, let them; it won't go down that road on the basis of its own perceptions.
+Let the body avoid discomfort (if it can), and if it feels is, say so. But the soul is what feels fear and pain, and what conceives of them in the first place, and it suffers nothing. Because it will never conclude that it has.
+The mind in itself has no needs, except for those it creates itself. Is undisturbed, except for its own disturbances. Knows no obstructions, except those from within.
+
+17. Well-being is good luck, or good character.
+
+17a. (But what are you doing here, Perceptions? Get back to where you came from, and good riddance. I don't need you. Yes, I know, it was only force of habit that brought you. No, I'm not angry with you. Just go away.)
+
+18. Frightened of change? But what can exist without it? What's closer to nature's heart? Can you take a hot bath and leave the firewood as it was? Eat food without transforming it? Can any vital process take place without something being changed?
+Can't you see? It's just the same with you--and just as vital to nature.
+
+19. Carried through existence as through rushing rapids. All bodies. Which are sprung from nature and cooperate with it, as our limbs do with each other. Time has swallowed a Chrysippus, a Socrates and an Epictetus, many times over.
+
+20. My only fear is doing something contrary to human nature--the wrong thing, the wrong way, or at the wrong time.
+
+21. Close to forgetting it all, close to being forgotten.
+
+22. To feel affection for people even when they make mistakes is uniquely human. You can do it, if you simply recognize: that they're human too, that they act out of ignorance, against their will, and that you'll both be dead before long. And, above all, that they haven't really hurt you. They haven't diminished your ability to choose.
+
+23. Nature takes substance and makes a horse. Like a sculptor with wax. And then melts it down and uses the material for a tree. Then for a person. Then for something else. Each existing only briefly.
+It does the container no harm to be put together, and none to be taken apart.
+
+24. Anger in the face is unnatural.. or in the end is put out for good, so that it can't be rekindled. Try to conclude its unnaturalness from that. (If even the consciousness of acting badly has gone, why go on living?)
+
+25. Before long, nature, which controls it all, will alter everything you see and use it as material for something else--over and over again. So that the world is continually renewed.
+
+26. When people injure you, ask yourself what good or harm they thought would come of it. If you understand that, you'll feel sympathy rather than outrage or anger. Your sense of good and evil may be the same as theirs, or near it, in which case you have to excuse them. Or your sense of good and evil may differ from theirs. In which case they're misguided and deserve your compassion. Is that so hard?
+
+27. Treat what you don't have as nonexistent. Look at what you have, the things you value most, and think of how much you'd crave them if you didn't have them. But be careful. Don't feel such satisfaction that you start to overvalue them--that it would upset you to lose them.
+
+28. Self-contraction: the mind's requirements are satisfied by doing what we should, and by the calm it brings us.
+
+29. Discard your misperceptions.
+Stop being jerked like a puppet.
+Limit yourself to the present.
+Understand what happens--to you, to others.
+Analyze what exists, break it all down: material and cause.
+Anticipate your final hours.
+Other people's mistakes? Leave them to their makers.
+
+30. To direct your thoughts to what is said. To focus the mind on what happens and what makes it happen.
+
+31. Wash yourself clean. With simplicity, with humility, with indifference to everything but right and wrong.
+Care for other human beings.
+Follow God.
+
+31a. "...all are relative," it's been said, "and in reality only atoms." It's enough to remember the first half: "all are relative." "Which is little enough."
+
+32. (On death:) If atoms, dispersed. If oneness, quenched or changed.
+
+33. (On pain:) Unendurable pain brings its own end with it. Chronic pain is always endurable: the intelligence maintains serenity by cutting itself from the body, the mind remains undiminished. And the parts that pain affects--let them speak for themselves, if they can.
+
+34. (On ambition:) How their minds work, the things they long for and fear. Events like piles of sand, drift upon drift--each one soon hidden by the next.
+
+35. "'If his mind is filled with nobility, with a grasp of all time, all existence, do you think our human life will mean much to him at all?'"
+"'How could it?' he said."
+"'Or death be very frightening?'"
+"'Not in the least.'"
+
+
+
+
+
+
+
+
+
+
+
 
 
