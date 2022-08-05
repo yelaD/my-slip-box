@@ -1209,6 +1209,29 @@ Follow God.
 "'Or death be very frightening?'"
 "'Not in the least.'"
 
+36. "Kingship: to earn a bad reputation by good deeds."
+
+37. Disgraceful: that the mind should control the face, should be able to shape and mold it as it pleases, but not shape and mold itself.
+
+38. "And why should we feel anger at the world? As if the world would notice!"
+
+39. "May you bring joy to us and those on high."
+
+40. "To harvest life standing stalks of grain Grown and cut down in turn."
+
+41. "If I and my two children cannot move the gods. The gods must have their reasons."
+
+42. "For what is just and good is on my side."
+
+43. No chorus of lamentation, no hysterics.
+
+44. "Then the only proper response for me to make is this: 'You are mistaken, my friend, if you think that any man worth his salt cares about the risk of death and doesn't concentrate on this alone: whether what he's doing is right or wrong, and his behavior a good man's or a bad one's.'"
+
+45. "It's like this, gentlemen of the jury: The spot where a person decides to station himself, or wherever his commanding officer stations him--well, I think that's where he ought to take a stand and face the enemy, and not worry about being killed, or about anything but doing his duty."
+
+
+
+
 
 
 

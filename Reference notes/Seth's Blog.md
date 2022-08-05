@@ -164,3 +164,36 @@ It cost nothing.
 
 Changethis, which I dreamed up in a moment of weakness a few years ago, is still going strong under better management now. It's the epicenter of ebook distribution, but there are plenty of places just dying to host your content. And your blog is the best place to launch your idea. The biggest challenge is that there are no barriers. If you want to do it, go do it. Ideas worth spreading, spread.
 
+
+##### Permission Marketing (January 31, 2008)
+Permission marketing is the privilege (not the right) of delivering anticipated, personal and relevant messages to people who actually want to get them.
+
+It recognizes the new power of the best consumers to ignore marketing. It realizes that treating people with respect is the best way to earn their attention.
+
+Pay attention is the key phrase here, because permission marketers understand that when someone chooses to pay attention they are actually paying you with something precious. And there's no way they can get their attention back if they change their mind. Attention becomes an important asset, something to be valued, not wasted.
+
+Real permission is different from presumed or legalistic permission. Just because you somehow get my email address doesn't mean you have permission. Just because I don't complain doesn't mean you have permission. Just because it's in the fine print of your privacy policy doesn't mean it's permission either.
+
+Real permission works like this: if you stop showing up, people complain, they ask where you went.
+
+I got a note from a Daily Candy reader the other day. He was upset because for three days in a row, his Daily Candy newsletter hadn't come. That's permission.
+
+Permission is like dating. You don't start by asking for the sale at first impression. You earn the right, over time, bit by bit.
+
+One of the key drivers of permission marketing, in addition to the scarcity of attention, is the extraordinary low cost of dripping to people who want to hear from you. RSS and email and other techniques mean you don't have to worry about stamps or network ad buys every time you have something to say. Home delivery is the milkman's revenge... it's the essence of permission.
+
+Permission doesn't have to be formal but it has to be obvious. My friend has permission to call me if he needs to borrow five dollars, but the person you meet at a trade show has no such ability to pitch you his entire resume, even though he paid to get in.
+
+Subscriptions are an overt act of permission. That's why home delivery newspaper readers are so valuable, and why magazine subscribers are worth more than newsstand ones.
+
+In order to get permission, you make a promise. You say, "I will do x, y, z, I hope you will give my permission by listening." And then, this is the hard part, that's all you do. You don't assume you can do more. You don't sell the list or rent the list or demand more attention. You can promise a newsletter and talk to me for years, you can promise a daily RSS feed and talk to me every three minutes, you can promise a sales pitch every day (the way [Woot](http://www.woot.com/) does). But the promise is the promise until both sides agree to change it. You don't assume that just because you're running for President or coming to the end of the quarter or launching a new product that you have the right to break the deal. You don't.
+
+Permission doesn't have to be a one-way broadcast medium. The internet means you can treat different people differently, and it demands that you figure out how to let your permission base choose what they hear and in what format.
+
+When I launched my book that coined this phrase 9 years ago, I offered people at third of the book for free in exchange for an email address. And I never, ever did anything with those addresses again. That wasn't part of the deal. No follow ups, no new products. A deal's a deal.
+
+If it sounds like you need humility and patience to do permission marketing, you're right. That's why so few companies do it properly. The best shortcut, in this case, is no shortcut at all.
+##### 1000 true fans (March 4, 2008)
+This is [Kevin Kelly's](http://www.kk.org/thetechnium/archives/2008/03/1000_true_fans.php) best riff of the year, and that's saying an enormous amount. Go read it.
+
+Some people will read this and immediately understand. Others will read it and start waffling over the meaning of "true." My expansion: you need to alter what you do and how you do it so that 1,000 true fans is sufficient to make you very happy.
