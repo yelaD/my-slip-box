@@ -197,3 +197,42 @@ If it sounds like you need humility and patience to do permission marketing, you
 This is [Kevin Kelly's](http://www.kk.org/thetechnium/archives/2008/03/1000_true_fans.php) best riff of the year, and that's saying an enormous amount. Go read it.
 
 Some people will read this and immediately understand. Others will read it and start waffling over the meaning of "true." My expansion: you need to alter what you do and how you do it so that 1,000 true fans is sufficient to make you very happy.
+##### Email checklist (June 5, 2008)
+Before you hit send on that next email, perhaps you should run down this list, just to be sure:
+
+1. Is it going to just one person? (If yes, jump to #10)
+2. Since it's going to a group, have I thought about who is on my list?
+3. Are they blind copied?
+4. Did every person on the list really and truly opt in? Not like sort of, but really ask for it?
+5. So that means that if I *didn't* sent it to them, they'd complain about not getting it?
+6. See #5. If they wouldn't complain, take them off!
+7. That means, for example, that sending bulk email to a list of bloggers just cause they have blogs is not okay.
+8. Aside: the definition of permission marketing: Anticipated, personal and relevant messages delivered to people who actually want to get them. Nowhere does it say anything about you and your needs as a sender. Probably none of my business, but I'm just letting you know how I feel. (And how your prospects feel.)
+9. Is the email from a real person? If it is, will hitting reply get a note back to that person? (if not, change it please).
+10. Have I corresponded with this person before?
+11. Really? They've written back? (if no, reconsider email).
+12. If it is a cold-call email, and I'm sure it's welcome, and I'm sure it's not spam, then don't apologize. If I need to apologize, then yes, it's spam, and I'll get the brand-hurt I deserve.
+13. Am I angry? (If so, save as draft and come back to the note in one hour).
+14. Could I do this note better with a phone call?
+15. Am I blind-ccing my boss? If so, what will happen if the recipient finds out?
+16. Is there anything in this email I don't want the attorney general, the media or my boss seeing? (If so, hit delete).
+17. Is any portion of the email in all caps? (If so, consider changing it.)
+18. Is it black type at a normal size?
+19. Do I have my contact info at the bottom? (If not, consider adding it).
+20. Have I included the line, "Please save the planet. Don't print this email"? (If so, please delete the line and consider a job as a forest ranger or flight attendant).
+21. Could this email be shorter?
+22. Is there anyone copied on this email who could be left off the list?
+23. Have I attached any files that are very big? (If so, google something like 'send big files' and consider your options.)
+24. Have I attached any files that would work better in PDF format?
+25. Are there any 🙂 or other emoticons involved? (If so, reconsider.)
+26. Am I forwarding someone else's email? (If so, will they be happy when they find out?)
+27. Am I forwarding something about religion (mine or someone else's)? (If so, delete).
+28. Am I forwarding something about a virus or worldwide charity effort or other potential hoax? (If so, visit [snopes](http://www.snopes.com/) and check to see if it's actually true).
+29. Did I hit 'reply all'? If so, am I glad that I did? Does every person on the list need to see it?
+30. Am I quoting back the original text in a helpful way? (Sending an email that says, in its entirety, "yes," is not helpful).
+31. If this email is to someone like Seth, did I check to make sure I know the difference between its and it's? Just wondering.
+32. If this is a press release, am I really sure that the recipient is going to be delighted to get it? Or am I taking advantage of the asymmetrical nature of email-free to send, expensive investment of time to read or delete?
+33. Are there any little animated creatures in the footer of this email? Adorable kittens? Endangered species of any kind?
+34. Bonus: Is there a long legal disclaimer at the bottom of my email? Why?
+35. Bonus: Does the subject line make it easy to understand what's to come and likely it will get filed properly?
+36. If I had to pay 42 cents to send this email, would I?

@@ -1229,6 +1229,41 @@ Follow God.
 
 45. "It's like this, gentlemen of the jury: The spot where a person decides to station himself, or wherever his commanding officer stations him--well, I think that's where he ought to take a stand and face the enemy, and not worry about being killed, or about anything but doing his duty."
 
+46. "But, my good friend, consider the possibility that nobility and virtue are not synonymous with the loss or preservation of one's life. Is it not possible that a real man should forget about living a certain number of years, and should not cling to life, but leave it up to the gods, accepting, as women say, that 'no one can escape his fate,' and turn his attention to how he can best live the life before him?"
+
+47. To watch the courses of the stars as if you revolved with them. To keep constantly in mind how the elements alter into one another. Thoughts like this wash off the mud of life below.
+
+48. (Plato has it right.) If you want to talk about people, you need to look down on the earth from above. Herds, armies, farms; weddings, divorces, births, deaths; noisy courtrooms, desert places; all the foreign peoples; holidays, days of mourning, market days... all mixed together a harmony of opposites.
+
+49. Look at the past--empire succeeding empire--and from that, extrapolate the future: the same thing. No escape from the rhythm of events.
+Which is why observing life for forty years is as good as a thousand. Would you really see anything new?
+
+50. "...Earth's offspring back to earth. But all that's born of heaven to heaven returns again."
+Either that or the cluster of atoms pulls apart and one way or another the insensible elements disperse.
+
+51. "...with good and drink and magic spells. Seeking some novel way to frustrate death."
+
+51a. "To labor cheerfully and so endure the wind that blows from heaven."
+
+52. A better wrestler. But not a better citizen, a better person, a better resource in tight places, a better forgiver of faults.
+
+53. Wherever something can be done as the *logos* shared by gods and men dictates, there all is in order. Where there is profit because our effort is productive, because it advances in step with our nature, there we have nothing to fear.
+
+54. Everywhere, at each moment, you have the option:
+- to accept this event with humility
+- to treat this person as he should be treated
+- to approach this thought with care, so that nothing irrational creeps in.
+
+55. Don't pay attention to other people's minds. Look straight ahead, where nature is leading you--nature in general, through the things that happen to you; and your own nature, through your own actions.
+Everything has to do what it was made for. And other things were made for those with *logos*. In this respect as in others: lower things exist for the sake of higher ones, and higher things for one another.
+Now, the main thing we were made for is to work with others.
+Secondly, to resist our body's urges. Because things driven by *logos*--by thought--have the capacity for detachment--to resist impulses and sensations, both of which are merely corporeal. Thought seeks to be their master, not their subject. And so it should: they were created for its use.
+And the third thing is to avoid rashness and credulity.
+The mind that grasps this and steers straight ahead should be able to hold its own.
+
+
+
+
 
 
 
