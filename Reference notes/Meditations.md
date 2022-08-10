@@ -1261,6 +1261,21 @@ Secondly, to resist our body's urges. Because things driven by *logos*--by thoug
 And the third thing is to avoid rashness and credulity.
 The mind that grasps this and steers straight ahead should be able to hold its own.
 
+56. Think of yourself as dead. You have lived your life. Now take what's left and live it properly.
+
+57. To love only what happens, what was destined. No greater harmony.
+
+58. In all that happens, keep before your eyes those who experienced it before you, and felt shock and outrage and resentment at it.
+And now where are they? Nowhere.
+Is that what you want to be like?
+Instead of avoiding all these distracting assaults--leaving the alarms and flight to others--and concentrating on what you can *do* with it all?
+Because you can use it, treat it as raw material. Just pay attention, and resolve to live up to your own expectations. In everything. And when faced with a choice, remember: our business is with things that really matter.
+
+59. Dig deep; the water--the goodness--is down there. And as long as you keep digging, it will keep bubbling up.
+
+60. What the body needs is stability. To be impervious to jolts in all it is and does. The cohesiveness and beauty that intelligence lends to the face--that's what the body needs.
+But it should come without effort.
+
 
 
 
