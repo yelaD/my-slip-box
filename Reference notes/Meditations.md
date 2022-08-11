@@ -1276,6 +1276,21 @@ Because you can use it, treat it as raw material. Just pay attention, and resolv
 60. What the body needs is stability. To be impervious to jolts in all it is and does. The cohesiveness and beauty that intelligence lends to the face--that's what the body needs.
 But it should come without effort.
 
+61. Not a dancer but a wrestler: waiting, poised and dug in, for sudden assaults.
+
+62. Look at who they really are, the people whose approval you long for, and what their minds are really like. Then you won't blame the ones who make mistakes they can't help, and you won't feel a need for their approval. You will have seen the sources of both--their judgments and their actions.
+
+63. "Against our will, our souls are cut off from truth."
+Truth, yes, and justice, self-control, kindness...
+Important to keep this in mind. It will make you more patient with other people.
+
+64. For times when you feel pain:
+See that it doesn't disgrace you, or degrade your intelligence--doesn't keep it from acting rationally or unselfishly.
+And in most cases what Epicurus said should help: that pain is neither unbearable nor unending, as long as you keep in mind its limits and don't magnify them in your imagination.
+And keep in mind too that pain often comes in disguise--as drowsiness, fever, loss of appetite.... When you're bothered by things like that, remind yourself: "I'm giving in to pain."
+
+65. Take care that you don't treat inhumanity as it treats human beings.
+
 
 
 
