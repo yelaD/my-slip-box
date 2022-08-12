@@ -279,3 +279,16 @@ Or say you make a mistake and go to the concert instead of selling (those seats 
 \[Just because the guy spent a lot on the sign for his store doesn't mean he shouldn't spend more to spell the biggest word properly. The amount he already spent is irrelevant. What matters is what the benefit of spelling 'stationery' properly will be.\]
 
 Ignore sunk costs.
+##### Understanding business development (September 21, 2009)
+**Business Development** is a mysterious title for a little discussed function or department in most larger companies. It's also a great way for an entrepreneur or small business to have fun, create value and make money.
+
+Good business development allows businesses to profit by doing something that is tangential to their core mission. Sometimes the profit is so good, it becomes part of their core mission, other times it supports the brand and sometimes it just makes money. And often it's a little guy who can be flexible enough to make things happen.
+
+Examples:
+- Starbucks licenses their name to a maker of ice cream and generates millions in royalties.
+- A rack jobber like Handleman does a deal with a mass marketer like K Mart. K Mart gives them room in the store to sell records and gets a cut, Handleman does all the work.
+- AOL buys AIM instant messaging software and integrates it into their service.
+- Years ago, I licensed the rights to Isaac Asimov's Robot novels from a business development person at his publisher and turned the books into a VCR murder mystery game which I licensed to a business development person at Kodak, a company that was experimenting with becoming a publisher. (Isaac made more from this project that he did from many of his books). 
+- Best Buy offers extended warranties on appliances you buy. They don't provide the warranty, of course, a business development person did a deal with an insurance/service company to do it and they share the profit.
+- The Princeton Review built a huge test prep business, but only by licensing their brand to a series of books which did the lion's share of the their marketing for them.
+

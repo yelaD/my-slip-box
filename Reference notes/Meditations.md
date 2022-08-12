@@ -1291,21 +1291,18 @@ And keep in mind too that pain often comes in disguise--as drowsiness, fever, lo
 
 65. Take care that you don't treat inhumanity as it treats human beings.
 
+66. How do we know that Telauges wasn't a better man than Socrates?
+It's not enough to ask whether Socrates' death was nobler, whether he debated with the sophists more adeptly, whether he showed greater endurance by spending the night out in the cold, and when he was ordered to arrest the man from Salamis decided it was preferable to refuse, and "swaggered about the streets" (which one could reasonably doubt).
+What matters is what kind of soul he had.
+Whether he was satisfied to treat men with justice and the gods with reverence and didn't lose his temper unpredictably at evil done by others, didn't make himself the slave of other people's ignorance, didn't treat anything that nature did as abnormal, or put up with it as an unbearable imposition, didn't put his mind in his body's keeping.
 
+67. Nature did not blend things so inextricably that you can't draw your own boundaries--place your own well-being in your own hands. It's quite possible to be a good man without anyone realizing it. Remember that.
+And this too: you don't need much to live happily. And just because you've abandoned your hopes of becoming a great thinker or scientist, don't give up on attaining freedom, achieving humility, serving others, obeying God.
 
+68. To live life in peace, immune to all compulsion. Let them scream whatever they want. Let animals dismember this soft flesh that covers you. How would any of that stop you from keeping your mind calm--reliably sizing up what's around you--and ready to make good use of whatever happens? So that Judgement can look the event in the eye and say, "This is what you really are, regardless of what you may look like." While Adaptability adds, "You're just what I was looking for." Because to me the present is a chance for the exercise of rational virtue--civic virtue-- in short, the art that men share with gods. Both treat whatever happens as wholly natural; not novel or hard to deal with, but familiar and easily handled.
 
+69. Perfection of character: to live your last day, every day, without frenzy, or sloth, or pretense.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
+70. The gods live forever and yet they don't seem annoyed at having to put up with human beings and their behavior throughout eternity. And not only put up with but actively care for them.
+And you--on the verge of death--you still refuse to care for them, although you're one of them yourself.
 
