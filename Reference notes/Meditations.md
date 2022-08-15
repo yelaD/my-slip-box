@@ -1306,3 +1306,18 @@ And this too: you don't need much to live happily. And just because you've aband
 70. The gods live forever and yet they don't seem annoyed at having to put up with human beings and their behavior throughout eternity. And not only put up with but actively care for them.
 And you--on the verge of death--you still refuse to care for them, although you're one of them yourself.
 
+71. It's silly to try to escape other people's faults. They are inescapable. Just try to escape your own.
+
+72. Whenever the force that makes us rational and social encounters something that is neither, then it can reasonably regard is as inferior.
+
+73. You've given aid and they've received it. And yet, like an idiot, you keep holding out for more: to be credited with a Good Deed, to be repaid in kind. Why?
+
+74. No one objects to what is useful to him.
+To be of use to others is natural.
+Then don't object to what is useful to you--being of use.
+
+75. Nature willed the creation of the world. Either all that exists follows logically or even those things to which the world's intelligence most directs its will are completely random.
+A source of serenity in more situations than one.
+
+
+
