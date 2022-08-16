@@ -1118,7 +1118,16 @@ You can return to life. Look at things as you did before. And life returns.
 3. Pointless bustling of processions, opera arias, herds of sheep and cattle, military exercises. A bone flung to pet poodles, a little food in the fish tank. The miserable servitude of ants, scampering of frightened mice, puppets jerked on strings.
 Surrounded as we are by all of this, we need to practice acceptance. Without disdain. But remembering that our own worth is measured by what we devote our energy to.
 
-4. Focus on what is said when you speak and on what results from each action. Know what the one aims at, and what the other means.
+4. Focus on what is said when you speak and on what results from each action. Know what the one aims at, and what the other me
+5. 
+6. 
+7. 
+8. 
+9. 
+10. 
+11. 
+12. 
+13. ans.
 
 5. Is my intellect up to this? If so, then I'll put it to work, like a tool provided by nature. And if it isn't then I'll turn the job over to someone who can do better--unless I have no choice.
 Or I do the best I can with it, and collaborate with whoever can make use of it, to do what the community needs done. Because whatever I do--alone or with others--can aim at one thing only: what squares with requirements.
@@ -1320,4 +1329,26 @@ Then don't object to what is useful to you--being of use.
 A source of serenity in more situations than one.
 
 
+
+
+### Book 8
+1. Another encouragement to humility: you can't claim to have lived your life as a philosopher--not even your whole adulthood. You can see for yourself how far you are from philosophy. And so can many others. You're tainted. It's not so easy now--to have a reputation as a philosopher. And your position is an obstacle as well.
+So you know how things stand. Now forget what they think of you. Be satisfied if you can live the rest of your life, however short, as your nature demands. Focus on that, and don't let anything distract you. You've wandered all over and finally realized that you never found what  you were after: how to live. Not in syllogisms, not in money, or fame, or self-indulgence. Nowhere.
+--Then where is it to be found?
+In doing what human nature requires.
+-- How?
+Through first principles. Which should govern your intentions and your actions.
+-- What principles?
+Those to do with good and evil. That nothing is good except what leads to fairness, and self-control, and courage, and free will. And nothing bad except what does the opposite.
+
+2. For every action, ask: How does it affect me? Could I change my mind about it?
+But soon I'll be dead, and the slate's empty. So this is the only question: Is it the action of a responsible being, part of society, and subject to the same decrees as God?
+
+3. Alexander and Caesar and Pompey. Compared with Diogenes, Heraclitus, Socrates? The philosophers knew the what, the why, the how. Their minds were their own.
+The others? Nothing but anxiety and enslavement.
+
+4. You can hold your breath until you turn blue. But they'll still go on doing it.
+
+5.  The first step: Don't be anxious. Nature controls it all. And before long you'll be no one, nowhere--like Hadrian, like Augustus.
+The second step: Concentrate on what you have to do. Fix your eyes on it. Remind yourself that your task is to be a good human being; remind yourself what nature demands of people. Then do it, without hesitation, and speak the truth as you see it. But with kindness. With humility. Without hypocrisy.
 
