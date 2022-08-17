@@ -1352,3 +1352,16 @@ The others? Nothing but anxiety and enslavement.
 5.  The first step: Don't be anxious. Nature controls it all. And before long you'll be no one, nowhere--like Hadrian, like Augustus.
 The second step: Concentrate on what you have to do. Fix your eyes on it. Remind yourself that your task is to be a good human being; remind yourself what nature demands of people. Then do it, without hesitation, and speak the truth as you see it. But with kindness. With humility. Without hypocrisy.
 
+6. Nature's job: to shift things elsewhere, to transform them, to pick them up and move them here and there. Constant alteration. But not to worry: there's nothing new here. Everything is familiar. Even the proportions are unchanged.
+
+7. Nature of any kind thrives on forward progress. And progress for a  rational mind means not accepting falsehood of uncertainty in its perceptions, making unselfish actions its only aim, seeking and shunning only the things it has control over, embracing what nature demands of it--the nature in which it participates, as the leaf's nature does in the tree's. Except that the nature shared by the leaf is without consciousness or reason, and subject to impediments. Whereas that shared by human beings is without impediments, and rational, and just, since it allots to each and every thing an equal and proportionate share of time, being, purpose, action, chance. Examine it closely. Not whether they're identical point by point, but in the aggregate: this weighed against that.
+
+8. No time for reading. For controlling your arrogance, yes. For overcoming pain and pleasure, yes. For outgrowing ambition, yes. For not feeling anger at stupid and unpleasant people--even for caring about them--for that, yes.
+
+9. Don't be overheard complaining about life at court. Even to yourself.
+
+10. Remorse is annoyance at yourself for having passed up something that's to your benefit. But if it's to your benefit it must be good--something a truly good person would be concerned about.
+But no truly good person would feel remorse at passing up pleasure.
+So it cannot be to your benefit, or good.
+
+
