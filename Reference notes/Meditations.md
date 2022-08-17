@@ -1364,4 +1364,14 @@ The second step: Concentrate on what you have to do. Fix your eyes on it. Remind
 But no truly good person would feel remorse at passing up pleasure.
 So it cannot be to your benefit, or good.
 
+11. What is this, fundamentally? What is its nature and substance, its reason for being? What is it doing in the world? How long is it here for?
 
+12. When you have trouble getting out of bed in the morning, remember that your defining characteristic--what defines a human being--is to work with others. Even animals know how to sleep. And it's the characteristic activity that's the more natural one--more innate and more satisfying.
+
+13. Apply them constantly, to everything that happens: Physics. Ethics. Logic. 
+
+14. When you have to deal with someone, ask yourself: What does he mean by good and bad? If he thinks *x* or *y* about pleasure or pain (and what produces them), about fame and disgrace, about death and life, then it shouldn't shock or surprise you when he *does* *x* or *y*.
+In fact, I'll remind myself that he has no real choice.
+
+15. Remember: you shouldn't be surprised that a fig tree produces figs, nor the world what it produces. A good doctor isn't surprised when his patients have fevers, or a helmsman when the wind blows against him.
+16. 
