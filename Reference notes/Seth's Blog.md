@@ -312,3 +312,16 @@ Here are some tactical tips on how to do business development better:
 10. **Hire better.** How do you decide who to put in this job? I'd argue that glibness and charisma aren't as important as strategic thinking, project management and humility.
 11. **Structure deals with the expectation of success.** The only real reason to do business development deals is because when they work they're so powerful. Andrew Tobias put his name on a piece of software that ended up earning him millions of dollars. It's easy to get hung up on  all the bod things that could happen, but keep your focus on how the world looks when you get it right.
 12. **End well.** Most of the time, even good business development deals fall down before the end of the negotiation process. If a deal doesn't come together, say so. Acknowledge what went wrong, thank the other party and end well. If it does come together, track the integration and stay involved enough to learn from what works and what doesn't. I'm still waiting to hear from people who said they'd get back to me "tomorrow" fifteen years ago, but I'm losing hope... Ending well not only teaches you how to do better next time, but it keeps doors open for when you need to come back to someone who you should have done a deal with in the first place.
+
+##### define: Brand (December 13, 2009)
+Here's my definition: *A brand is the set of expectation, memories, stories and relationships that, taken together, account for a consumer's decision to choose one product or service over another. If the consumer (whether it's a business, a buyer, a voter or a donor) doesn't pay a premium, make a selection or spread the word, then no brand value exists for that consumer.*
+
+A brand's value is merely the sum total of how much extra people will pay, or how often they choose, the expectations, memories, stories and relationships of one brand over the alternatives.
+
+A brand used to be something else. It used to be a logo or a design or a wrapper. Today, that's a shadow of the brand, something that might mark the brand's existence. But just as it takes more than a hat to be a cowboy, it takes more than a designer prattling on about the texture to make a brand. If you've never heard of it, if you wouldn't choose it, if you don't recommend it, then there is no brand, at least not for you.
+
+If you hear a designer say this (believe it or not, I didn't make this quote up), "A TCHO Chocolate bar, with its algorithmic guilloche patterns, looks like a modern form of currency. "Modern" was always part of the brand brief — no faux traditionalism, but resolutely forward-looking for a new generation of chocolate enthusiasts..." then I wonder if there's a vocabulary disconnect.
+
+*Design is essential but design is not brand.*
+
+PS a Google tip: you can find the definition of any word by typing "define:" followed by the word into your search box.
