@@ -1374,4 +1374,18 @@ So it cannot be to your benefit, or good.
 In fact, I'll remind myself that he has no real choice.
 
 15. Remember: you shouldn't be surprised that a fig tree produces figs, nor the world what it produces. A good doctor isn't surprised when his patients have fevers, or a helmsman when the wind blows against him.
-16. 
+
+16. Remember that to change your mind and to accept correction are free acts too. The action is yours, based on your own will, your own decision--and your own mind.
+
+17. If it's in your control, why do you do it? If it's in someone else's, then who are you blaming? Atoms? The gods? Stupid either way.
+Blame no one. Set people straight, if you can. If no, just repair the damage. And suppose you can't do that either. Then where does blaming people get you?
+No pointless actions.
+
+18. What dies doesn't vanish. It stays here in the world, transformed, dissolved, as parts of the world, and of you. Which are transformed in turn--without grumbling.
+
+19. Everything is here for a purpose, from horses to vine shoots. What's surprising about that? Even the sun will tell you, "I have a purpose," and the other gods as well. And why were *you* born? For pleasure? See if that answer will stand up to questioning.
+
+20. Nature is like someone throwing a ball in the air, gauging its rise and arc--and where it will fall. And what does the ball gain as it flies upward? Or lose when it plummets to earth?
+What does the bubble gain from its existence? Or lose by bursting?
+And the same for a candle.
+

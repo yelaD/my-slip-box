@@ -347,3 +347,4 @@ Want to know why so many companies can't keep up with Apple? It's because they c
 The amygdala isn't going away. Your lizard brain is here to stay, and your job is to figure out how to quiet it and ignore it. This is so important, I wanted to put it on the cover of my new book. We realized, though, that the lizard brain is freaked out by a picture of itself, and if you want to sell books to someone struggling with the resistance (that would be all of us) best to keep it a little more on the down low.
 
 Now you've seen the icon and you know it's name. What are you going to do about it?
+##### The modern business plan (May 24, 2010)
