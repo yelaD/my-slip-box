@@ -7,8 +7,12 @@
         "id": "f2d6cb87533eadb8",
         "type": "leaf",
         "state": {
-          "type": "empty",
-          "state": {}
+          "type": "markdown",
+          "state": {
+            "file": "Reference notes/Seth's Blog.md",
+            "mode": "source",
+            "source": false
+          }
         }
       }
     ],
@@ -49,7 +53,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 211.5
+    "width": 177.5
   },
   "right": {
     "id": "73f49698c0a6f5e2",
@@ -65,6 +69,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "Reference notes/Seth's Blog.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -95,8 +100,8 @@
   },
   "active": "f2d6cb87533eadb8",
   "lastOpenFiles": [
-    "Reference notes/Seth's Blog.md",
     "Reference notes/Meditations.md",
+    "Reference notes/Seth's Blog.md",
     "Files/quieting the lizard brain.png",
     "Files/ignore sunk costs.png",
     "Reference notes/How to Take Smart Notes.md",

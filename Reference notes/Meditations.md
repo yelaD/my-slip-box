@@ -1389,3 +1389,26 @@ No pointless actions.
 What does the bubble gain from its existence? Or lose by bursting?
 And the same for a candle.
 
+21. Turn it inside out: What is it like? What is it like old? Or sick? Or selling itself on the streets?
+They all die soon--praiser and praised, rememberer and remembered.
+Remembered in these parts or in a corner of them. Even there they don't all agree with each other (or even with themselves).
+And the whole earth a mere point in space.
+
+22. Stick to what's in front of you--idea, action, utterance.
+
+22a. This is what you deserve. You could be good today. But instead you choose tomorrow.
+
+23. What I do? I attribute it to human beneficence.
+What is done to me? I accept it--and attribute it to the gods, and that source from which all things together flow.
+
+24. Like the baths--oil, sweat, dirt, grayish water, all of it disgusting.
+The whole of life, all of the visible world.
+
+25. Verus, leaving Lucilla behind, then Lucilla. Maximus, leaving Secunda. And Secunda. Diotimus, leaving Epitynchanus. Then Epitynchanus. Faustina, leaving Antoninus. Then Antoninus.
+So with all of them.
+Hadrian, leaving Celer. And Celer.
+Where have they gone, the brilliant, the insightful ones, the proud? Brilliant as Charax and Demetrius the Platonist and Eudaemon and the rest of them. Short-lived creatures, long dead. Some of them not remembered at all, some become legends, some lost even to legend.
+So remember: your components will be scattered too, the life within you quenched. Or marching orders and another posting.
+
+
+
