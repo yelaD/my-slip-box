@@ -1410,5 +1410,20 @@ Hadrian, leaving Celer. And Celer.
 Where have they gone, the brilliant, the insightful ones, the proud? Brilliant as Charax and Demetrius the Platonist and Eudaemon and the rest of them. Short-lived creatures, long dead. Some of them not remembered at all, some become legends, some lost even to legend.
 So remember: your components will be scattered too, the life within you quenched. Or marching orders and another posting.
 
+26. Joy for humans lies in human actions.
+Human actions: kindness to others, contempt for the senses, the interrogation of appearances, observation of nature and of events in nature.
+
+27. Three relationships:
+
+i. with the body you inhabit;
+ii. with the divine, the cause of everything in all things;
+iii. with the people around you.
+
+28. Either pain affects the body (which is the body's problem) or is affects the soul. But the soul can choose not to be affected, preserving its own serenity, its own tranquility. All our decisions, urges, desires, aversions lie within. No evil can touch them.
+
+29. To erase false perceptions, tell yourself: I have it in me to keep my soul from evil, lust and all confusion. To see things as they are and treat them as they deserve. Don't overlook this innate ability.
+
+30. To speak to the Senate--or anyone--in the right tone, without being overbearing. To choose the right words.
+
 
 
