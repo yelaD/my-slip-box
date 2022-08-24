@@ -1425,5 +1425,23 @@ iii. with the people around you.
 
 30. To speak to the Senate--or anyone--in the right tone, without being overbearing. To choose the right words.
 
+31. Augustus's court: his wife, his daughter, his grandsons, his stepsons, his sister, Agrippa, the relatives, servants, friends, Areius, Maecenas, the doctors, the sacrificial priests... the whole court, dead.
+And consider the other... not just the deaths of individuals (like the family of the Pompeys).
+That line they write on tombs--"last surviving descendant." Consider their ancestors' anxiety--that there be a successor. But someone has to be the last. There, too, death of a whole house.
+
+32. You have to assemble your life yourself--action by action. And be satisfied if each one achieves its goal, as far as it can. No one can keep that from happening.
+--But there are external obstacles....
+Not to behaving with justice, self-control, and good sense.
+--Well, but perhaps to some more concrete action.
+But if you accept the obstacle and work with what you're given, an alternative will present itself--another piece of what you're trying to assemble. Action by action.
+
+33. To accept it without arrogance, to let it go with indifference.
+
+34. Have you ever seen a severed hand of foot, or a decapitated head, just lying somewhere far away from the body it belonged to...? That's what we do to ourselves--or try to--when we rebel against what happens to us, when we segregate ourselves. Or when we do something selfish.
+You have torn yourself away from unity--your natural state, one you were born to share in. Now you've cut yourself off from it.
+But you have one advantage here: you can reattach yourself. A privilege God has granted to no other part of no other whole--to be separated, cut away, and reunited. But look how he's singled us out. He's allowed us not to be broken off in the first place, and when we are he's allowed us to return, to graft ourselves back on, and take up our old position once again: part of a whole.
+
+35. We have various abilities, present in all rational creatures as in the nature of rationality itself. And this is one of them. Just as nature takes every obstacle, every impediment, and works around it--turns it to its purposes, incorporate it into itself--so, too, a rational being can turn each setback into raw material and use it to achieve its goal.
+
 
 
