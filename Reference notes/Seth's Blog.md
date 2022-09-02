@@ -398,3 +398,34 @@ I know this rant is nothing new. In fact, people have been complaining about wid
 Let's assert for a moment that you get paid the create, manipulate or spread ideas. That's you don't get paid to lift bricks or hammer steel. If you're in the idea business, what's going to improve your career, get you a better job, more respect or a happier day? Forgive me for suggesting (to those not curious enough to read this blog and others) that it might be reading blogs, books or even watching TED talks.
 
 As for the deliberately uninformed, we can ignore them or we can reach out to them and hopefully start a pattern of people thinking for themselves...
+##### The world's worst boss (December 4, 2020)
+That would be you.
+
+Even if you're not self-employed, your boss is you. You manage you career, your day, your responses. You manage how you sell your services and your education and the way you talk to yourself.
+
+Odds are, you're doing it poorly.
+
+If you had a manager that talked to you the way you talked to you, you'd quit. If you had a boss that wasted as much of your time as you do, they'd fire her. If an organization developed its employees as poorly as you develop yourself, it would soon go under.
+
+I'm amazed at how often people choose to fail when they go out on their own or when they end up in one of those rare jobs that encourage one to set an agenda and manage themselves. Faced with the freedom to excel, they falter and hesitate and stall and ultimately punt. 
+
+We are surprised when someone self-directed arrives on the scene. Someone who figures out a way to work from home and then turns that into a two-year journey, laptop in hand, as they explore the world while doing their job. We are shocked that someone uses evenings and weekends to get a second education or start a useful new side business. And we're envious when we encounter someone who has managed to bootstrap themselves into happiness, as if that's rare or even uncalled for.
+
+There are few good books on being a good manager. Fewer still on managing yourself. It's hard to think of a more essential thing to learn.
+
+##### Reject the tyranny of being picked: pick yourself (March 21, 2011)
+Amanda Hocking is making a million dollars a year publishing her own work to the Kindle. No publisher.
+
+Rebecca Black has reached more than 15,000,000 listeners, like it or not, without a record label.
+
+Are we better off without gatekeepers? Well, it was gatekeepers that brought us the unforgettable lyrics of Terry Jacks in 1974, and it's gatekeepers that are spending a fortune bringing out pop songs and books that don't sell.
+
+I'm not ruse that this is even the right question. Whether or not we're better off, the fact is that the gatekeepers–the pickers–are reeling, losing power and fading away. What are you going to do about it?
+
+It's a cultural instinct to wait to get picked. To seek out the permission and authority that comes from a publisher or talk show host or even a blogger saying, "I pick you." Once you reject that impulse and realize that no one is going to select you–that Prince Charming has chosen another house–then you can actually get to work.
+
+If you're hoping that the HR people you sent your resume to are about to pick you, it's going to be a long wait. Once you understand that there are problems just waiting to be solved, once you realize that you have all the tools and all the permission you need, then opportunities to contribute abound.
+
+No one is going to pick you. Pick yourself.
+
+

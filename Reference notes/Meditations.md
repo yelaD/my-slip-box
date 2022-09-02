@@ -1443,5 +1443,39 @@ But you have one advantage here: you can reattach yourself. A privilege God has 
 
 35. We have various abilities, present in all rational creatures as in the nature of rationality itself. And this is one of them. Just as nature takes every obstacle, every impediment, and works around it--turns it to its purposes, incorporate it into itself--so, too, a rational being can turn each setback into raw material and use it to achieve its goal.
 
+36. Don't let your imagination be crushed by life as a whole. Don't try to picture everything bad that could possibly happen. Stick with the situation at hand, and ask, "Why is this so unbearable? Why can't I endure it?" You'll be embarrassed to answer.
+Then remind yourself that past and future have no power over you. Only the present--and even that can be minimized. Just mark off its limits. And if your mind tries to claim that it can't hold out against *that...* well, then, heap shame upon it.
+
+37. Are Pantheia or Pergamos still keeping watch at the tomb of Verus? Chabrias or Diotimus at the tomb of Hadrian? Of course they aren't. Would the emperors know if if they were?
+And even if they knew, would it please them?
+And even if it did, would the mourners live forever? Were they, too, not fated to grow old and then die? And when that happened, what would the emperors do?
+
+38. The stench of decay. Rotting meat in a bag.
+Look at it clearly. If you can.
+
+39. "To the best of my judgement, when I look at the human character I see no virtue placed there to counter justice. But I see one to counter pleasure: self-control."
+
+40. Stop perceiving the pain you imagine and you'll remain completely unaffected.
+--"You?"
+Your *logos*.
+--But I'm not just *logos*.
+Fine. Just don't let the *logos* be injured. If anything else is, let it decide that for itself.
+
+41. For animate beings, "harmful" is whatever obstructs the operation of their senses--or the fulfillment of what they intend. Similar obstructions constitute harm to plants. So too for rational creatures, anything that obstructs the operation of the mind is harmful.
+Apply this to yourself.
+Do pain and pleasure have their hooks in you? Let the senses deal with it. Are there obstacles to your action? If you failed to reckon with the possibility, then that would harm you, as a rational being. But if you use common sense, you haven't been harmed or even obstructed. No one can obstruct the operations of the mind. Nothing can get at them--not fire or steel, not tyrants, not abuse--nothing. As long as it's "a sphere... in perfect stillness."
+
+42. I have no right to do myself an injury. Have I ever injured anyone else if I could avoid it.
+
+43. People find pleasure in different ways. I find it in keeping my mind clear. In not turning away from people or the things that happen to them. In accepting and welcoming everything I see. In treating each thing as it deserves.
+
+44. Give yourself a gift: the present moment.
+People out for posthumous fame forget that the Generations To Come will be the same annoying people they know now. And just as mortal. What does it matter to you if they say *x* about you, or think *y*?
+
+45. Lift me up and hurl me. Wherever you will. My spirit will be gracious to me there--gracious and satisfied--as long as its existence and actions match its nature.
+Is there any reason why my soul should suffer and be degraded--miserable, tense, huddled, frightened? How could there be?
+
+
+
 
 
