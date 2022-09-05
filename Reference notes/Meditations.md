@@ -1475,6 +1475,28 @@ People out for posthumous fame forget that the Generations To Come will be the s
 45. Lift me up and hurl me. Wherever you will. My spirit will be gracious to me there--gracious and satisfied--as long as its existence and actions match its nature.
 Is there any reason why my soul should suffer and be degraded--miserable, tense, huddled, frightened? How could there be?
 
+46. What humans experience is part of human experience. The experience of the ox is part of the experience of oxen, as the vine's is of the vine, and the stone's what is proper to stones.
+Nothing that can happen is unusual or unnatural, and there's no sense in complaining. Nature does not make us endure the unendurable.
+
+47. External things are not the problem. It's your assessment of them. Which you can erase right now.
+If the problem is something in your own character, who's stopping you from setting your mind straight?
+And if it's that you're not doing something you think you should be, why not just do it?
+--But there are insuperable obstacles.
+Then it's not a problem. The cause of your inaction lies outside you.
+--But how can I go on living with that undone?
+Then depart, with a good conscience, as if you'd done it, embracing the obstacles too.
+
+48. Remember that when it withdraws into itself and finds contentment there, the mind is invulnerable. It does nothing against its will, even if its resistance is irrational. And if its judgment is deliberate and grounded in logic...?
+The mind without passions is a fortress. No place is more secure. Once we take refuge there we are safe forever. Not to see this is ignorance. Too see it and not seek safety means misery.
+
+49. Nothing but what you get from first impressions. That someone has insulted you, for instance. That--but not that it's done you any harm. The fact that my son is sick--that I can see. But "that he might die of it," no. Stick with first impressions. Don't extrapolate. And nothing can happen to you.
+Or extrapolate. From a knowledge of all that can happen in the world.
+
+50. The cucumber is bitter? Then throw it out.
+There are brambles in the path? Then go around them.
+That's all you need to know. Nothing more. Don't demand to know "why such things exist." Anyone who understands the world will laugh at you, just as a carpenter would if you seemed shocked at finding sawdust in his workshop, or a shoemaker at scraps of leather left over from work.
+Of course, they have a place to dispose of these; nature has no door to sweep things out of. But the wonderful thing about its workmanship is how, faced with that limitation, it takes everything within it that seems broken, old and useless, transforms it into itself, and makes new things from it. So that it doesn't need material from any outside source, or anywhere to dispose of what's left over. It relies on itself for all it needs: space, material, and labor.
+
 
 
 
