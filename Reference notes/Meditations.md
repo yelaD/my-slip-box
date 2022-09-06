@@ -1497,6 +1497,23 @@ There are brambles in the path? Then go around them.
 That's all you need to know. Nothing more. Don't demand to know "why such things exist." Anyone who understands the world will laugh at you, just as a carpenter would if you seemed shocked at finding sawdust in his workshop, or a shoemaker at scraps of leather left over from work.
 Of course, they have a place to dispose of these; nature has no door to sweep things out of. But the wonderful thing about its workmanship is how, faced with that limitation, it takes everything within it that seems broken, old and useless, transforms it into itself, and makes new things from it. So that it doesn't need material from any outside source, or anywhere to dispose of what's left over. It relies on itself for all it needs: space, material, and labor.
 
+51. No carelessness in your actions. No confusion in your words. No impression in your thoughts. No retreating into your own soul, or trying to escape it. No overactivity.
+They kill you, cut you with knives, shower you with curses. And that somehow cuts your mind off from clearness, and sanity, and self-control, and justice?
+A man standing by a spring of clear, sweet water and cursing it. While the fresh water keeps bubbling up. He can shovel mud into it, or dung, and the stream will carry it away, wash itself clean, remain unstained.
+To have that. Not a cistern but a perpetual spring.
+How? By working to win your freedom. Hour by hour. Through patience, honesty, humility.
+
+52. Not to know what the world is is to be ignorant of where you are.
+Not to know why it's here is to be ignorant of who you are. And what it is.
+Not to know any of this is to be ignorant of why *you're* here.
+And what are we to make of anyone who cares about the applause of such people, who don't know where or who they are?
+
+53. You want praise from people who kick themselves every fifteen minutes, the approval of people who despise themselves. (Is it a sign of self-respect to regret nearly everything you do?)
+
+54. To join ourselves not just to the air surrounding us, through breath, but to the reason that embraces all things, through thought. Reason is just as omnipresent, just as widely diffused in those who accept it as air is in those who breathe.
+
+55. The existence of evil does not harm the world. And an individual act of evil does not harm the victim. Only one person is harmed by it--and he can stop being harmed as soon as he decides to.
+
 
 
 

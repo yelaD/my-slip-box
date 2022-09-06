@@ -430,7 +430,7 @@ No one is going to pick you. Pick yourself.
 
 
 
-##### Are you making something (March 23, 2011)?
+##### Are you making something? (March 23, 2011)
 Making something is work. Let's define work, for a moment, as something you create that has a lasting value in the market.
 
 Twenty years ago, my friend Jill discovered Tetris. Unfortunately, she was working on her Ph.D. thesis at the time. On any given day the attention she spent on the game felt right to her. It was a choice, and she made it. It was more fun to move blocks around that it was to write her thesis. Day by day this adds up... she wasted so much time that she had to stay in school and pay for another six months to finish her doctorate.
@@ -450,3 +450,15 @@ Have a second device, perhaps an iPad, and use if for games, web commenting, onl
 Now, when you pick up the iPad, you can say to yourself, "break time." And if you find yourself taking a lot of that break time, you've just learned something important.
 
 Go, make something. We need it!
+##### Hard work vs. Long work (May 3, 2011)
+Long work is what the lawyer who bills 14 hours a day filling in forms does.
+
+Hard work is what the insightful litigator does when she synthesizes four disparate ideas and comes up with an argument that wins the case–in less that five minutes.
+
+Long work has a storied history. Farmers, hunters, factory workers... Always there was long work required to succeed. For generations, there was a huge benefit that came to those with the stamina and fortitude to do long work.
+
+Hard work is frightening. We shy away from hard work because inherent in hard work is risk. Had work is hard because you might fail. You can't fail at long work, you merely show up. You fail at hard work when you don't make an emotional connection, or when you don't solve the problem of when you hesitate.
+
+I think it's worth noting that long work often sets the stage for hard work. If you show up enough and practice enough and learn enough, it's more likely you will find yourself in a position to do hard work.
+
+It seems, thought that no matter how much long work you do, you won't produce the benefits of hard work unless you are willing to leap.
