@@ -462,3 +462,16 @@ Hard work is frightening. We shy away from hard work because inherent in hard wo
 I think it's worth noting that long work often sets the stage for hard work. If you show up enough and practice enough and learn enough, it's more likely you will find yourself in a position to do hard work.
 
 It seems, thought that no matter how much long work you do, you won't produce the benefits of hard work unless you are willing to leap.
+
+##### What's high school for? (May 6, 2011)
+Perhaps we could endeavor to teach our future the following:
+- How to focus intently on a problem until it's solved.
+- The benefit of postponing short-term satisfaction in exchange for long-term success.
+- How to read critically.
+- The power of being able to lead groups of peers without receiving clear delegated authority.
+- An understanding of the extraordinary power of the scientific method, in just about any situation or endeavor.
+- How to persuasively present ideas in multiple forms, especially in writing and before a group.
+- Project management. Self-management and the management of ideas, projects and people.
+- Personal finance. Understanding the truth about money and debt and leverage.
+- An insatiable desire (and the ability) to learn more. Forever.
+- Most of all, the self-reliance that comes from understanding that relentless hard work can be applied to solve problems worth solving.

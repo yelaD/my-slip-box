@@ -1,10 +1,10 @@
 {
   "main": {
-    "id": "a0bf30386d6d2f72",
+    "id": "da8e7e1b0f4af111",
     "type": "split",
     "children": [
       {
-        "id": "f2d6cb87533eadb8",
+        "id": "6d9054a6812c1aa5",
         "type": "leaf",
         "state": {
           "type": "markdown",
@@ -19,15 +19,15 @@
     "direction": "vertical"
   },
   "left": {
-    "id": "f7d8bc8881203c48",
+    "id": "cf323d31f8b3fab9",
     "type": "split",
     "children": [
       {
-        "id": "e8354a2981fb4139",
+        "id": "e0cb6425ce892ba1",
         "type": "tabs",
         "children": [
           {
-            "id": "cdf495575b42d494",
+            "id": "415db68695620812",
             "type": "leaf",
             "state": {
               "type": "file-explorer",
@@ -35,7 +35,7 @@
             }
           },
           {
-            "id": "2e0aab34ca472b3b",
+            "id": "17875f8cfcad6862",
             "type": "leaf",
             "state": {
               "type": "search",
@@ -53,18 +53,18 @@
       }
     ],
     "direction": "horizontal",
-    "width": 177.5
+    "width": 300
   },
   "right": {
-    "id": "73f49698c0a6f5e2",
+    "id": "2c1a4b6c86827231",
     "type": "split",
     "children": [
       {
-        "id": "c34048b4fa5daadb",
+        "id": "1ad2e444bee0f9c8",
         "type": "tabs",
         "children": [
           {
-            "id": "eaf877720777c29d",
+            "id": "831bf977f6d97112",
             "type": "leaf",
             "state": {
               "type": "backlink",
@@ -81,7 +81,7 @@
             }
           },
           {
-            "id": "df81a9d9740572eb",
+            "id": "88fb1800a32ba682",
             "type": "leaf",
             "state": {
               "type": "tag",
@@ -98,17 +98,10 @@
     "width": 300,
     "collapsed": true
   },
-  "active": "f2d6cb87533eadb8",
+  "active": "6d9054a6812c1aa5",
   "lastOpenFiles": [
     "Reference notes/Meditations.md",
-    "Reference notes/How to Take Smart Notes.md",
-    "Reference notes/Seth's Blog.md",
-    "Reference notes/Discourses.md",
-    "Zettelkasten/What to do with your money.md",
-    "Templates/Book.md",
-    "Files/quieting the lizard brain.png",
-    "Files/ignore sunk costs.png",
-    "Zettelkasten/What wealth is.md",
-    "Zettelkasten/Something you should realize early in life.md"
+    "Reference notes/Daily Stoic.md",
+    "Reference notes/The Richest Man in Babylon.md"
   ]
 }

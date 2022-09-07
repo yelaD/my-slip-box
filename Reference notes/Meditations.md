@@ -1514,7 +1514,16 @@ And what are we to make of anyone who cares about the applause of such people, w
 
 55. The existence of evil does not harm the world. And an individual act of evil does not harm the victim. Only one person is harmed by it--and he can stop being harmed as soon as he decides to.
 
+56. Other people's wills are as independent of mine as their breath and bodies. We may exist for the sake of one another, but our will rules its own domain. Otherwise the harm they do would cause harm to me. Which is not what God intended--for my happiness to rest with someone else.
 
+57. We speak of the sun's light as "pouring down on us," as "pouring over us" in all directions. Yet it's never poured out. Because it doesn't really pour; it extends. Its beams (*aktai*) get their name from their extension (ekteinesthai).
+To see the nature of a sunbeam, look at light as it falls through a narrow opening into a dark room. It extends in a straight line, striking any solid object that stands in its way and blocks the space beyond it. There it remains--not vanishing, or falling away.
+That's what the outpouring--the diffusion--of thought should be like: not emptied out, but extended. And not striking at obstacles with fury and violence, or falling away before them, but holding its ground and illuminating what receives it. What doesn't transmit light creates its own darkness.
 
+58. Fear of death is fear of what we may experience. Nothing at all, or something quite new. But if we experience nothing, we can experience nothing bad. And if our experience changes, then our existence will change with it--change, but not cease.
+
+59. People exist for one another. You can instruct or endure them.
+
+60. An arrow has one motion and the mind another. Even when pausing, even when weighing conclusions, the mind is moving forward, toward its goal.
 
 
