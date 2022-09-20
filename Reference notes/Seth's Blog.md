@@ -475,3 +475,34 @@ Perhaps we could endeavor to teach our future the following:
 - Personal finance. Understanding the truth about money and debt and leverage.
 - An insatiable desire (and the ability) to learn more. Forever.
 - Most of all, the self-reliance that comes from understanding that relentless hard work can be applied to solve problems worth solving.
+
+##### The future of the library (May 16, 2011)
+*What is a public library for?*
+
+First, how we got here:
+
+Before Gutenberg, a book cost about as much as a small house. As a result, only kings and bishops could afford to own a book of their own.
+
+This naturally led to the creation of shared books, of libraries where scholars (everyone else was too busy not starving) could come to read books that they didn't have to own. *The library as warehouse for books worth sharing.*
+
+Only after that did we invent the librarian.
+
+The librarian isn't a clerk who happens to work at a library. A librarian is a data hound, a guide, sherpa and a teacher. The librarian is the interface between reams of data and the untrained but motivated user.
+
+After Gutenberg, books got a lot cheaper. More individuals built their own collections. At the same time, though, the number of titles exploded, and the demand for libraries did as well. We definitely needed a warehouse to store all this bounty, and more than ever we needed librarian to help us find what we needed. *The library is a house for the librarian.*
+
+Industrialist (particularly Andrew Carnegie) funded the modern American library. The idea was that in a pre-electronic media age, the working man needed to be both entertained and slightly educated. Work all day and become a more civilized member of society by reading at night.
+
+And your kids? Your kids need a place with shared encyclopedias and plenty of fun books, hopefully inculcating a lifelong love of reading, because reading makes all of us more thoughtful, better informed and more productive members of a civil society.
+
+Which was all great, until now.
+
+Want to watch a movie? Netflix is a better librarian, with a better library, than any library in the country. The Netflix librarian knows about every movie, knows what you've seen and what you're likely to want to see. If the goal is to connect viewers with movies, Netflix wins.
+
+This goes further than a mere sideline that most librarians resented anyway. Wikipedia and the huge databanks of information have basically eliminated the library as the best resource for anyone doing amateur research (grade school, middle school, even undergrad). Is there any doubt that online resources will get better and cheaper as the years go by? Kinds don't shlep to the library to use an out of date encyclopedia to do a report on FDR. You might want them to, but they won't unless coerced.
+
+They need a librarian more than ever (to figure out creative ways to find and use data.) They need a library not at all.
+
+*When kids go to the mall instead of the library, it's not that the mall won, it's that the library lost.*
+
+And hen we need to consider the rise of the Kindle. An ebook costs about $1.60 in 1962 dollars. A thousand ebooks can fit on one device, easily. Easy to store, easy to sort, easy to hand to your neighbor. Five years from now, readers will be as expensive as Gillette razors, and ebooks will cost less than the blades.

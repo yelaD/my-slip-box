@@ -1526,4 +1526,10 @@ That's what the outpouring--the diffusion--of thought should be like: not emptie
 
 60. An arrow has one motion and the mind another. Even when pausing, even when weighing conclusions, the mind is moving forward, toward its goal.
 
+61. To enter other's mind and to let them enter yours.
 
+
+
+
+
+### Book 9
