@@ -506,3 +506,22 @@ They need a librarian more than ever (to figure out creative ways to find and us
 *When kids go to the mall instead of the library, it's not that the mall won, it's that the library lost.*
 
 And hen we need to consider the rise of the Kindle. An ebook costs about $1.60 in 1962 dollars. A thousand ebooks can fit on one device, easily. Easy to store, easy to sort, easy to hand to your neighbor. Five years from now, readers will be as expensive as Gillette razors, and ebooks will cost less than the blades.
+
+ Librarians that are arguing and lobbying for clever ebook lending solutions are completely missing the point. They are defending library as warehouse as opposed to fighting for the future, which is librarian as producer, concierge, connector, teacher and impresario.
+
+Post-Gutenberg, books are finally abundant, hardly scarce, hardly expensive, hardly worth warehousing. Post-Gutenberg, the scarce resource is knowledge and insight, not access to data.
+
+*The library is no longer a warehouse for dead books.* Just in time for the information economy, the library ought to be the local nerve center for information. (Please don't say I'm anti-book! I think through my actions and career choices, I've demonstrated my pro-book chops. I'm not saying I *want* paper to go away. I'm merely describing what's inevitably occurring). We all love the vision of the underprivileged kid bootstrapping himself out of poverty with books, but now (most of the time), the insight and leverage is going to come from being past and smart with online resources, not from hiding in the stacks.
+
+The next library is a place, still. A place where people come together to do co-working and coordinate and invent projects worth working on together. Aided by a librarian who understands the Mesh, a librarian who can bring domain knowledge and people knowledge and access to information to bear.
+
+The next library is a house for the librarian with the guts to invite kids in to teach them how to get better grades while doing less grunt work. And to teach them how to use a soldering iron or take apart something with no user serviceable parts inside. And even to challenge them to teach classes on their passions, merely because it's fun. This librarian takes responsibility/blame for any kid who manages to graduate from school without being a first-rate data shark.
+
+The next library is filled with so many web terminals there's always at least one empty. And the people who run this library don't view the combination of access to data and connections to peers as a sidelight-it's the entire point.
+
+Wouldn't you want to live and work and pay taxes in a town that had a library like that? The vibe of the Brooklyn coffee shop combined with the passionate raconteur of information? There are one thousand things that could be done in a place like this, all built around one mission: *take the world of data, combine it with the people in this community and create value.*
+
+We need librarians more than we ever did. What we don't need are mere clerks who guard dead paper. Librarians are too important to be a dwindling voice in our culture. For the right librarian, this is the chance of a lifetime.
+
+
+
