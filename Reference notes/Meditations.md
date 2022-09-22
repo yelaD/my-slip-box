@@ -1548,3 +1548,20 @@ Or perhaps you need some tidy aphorism to tuck away in the back of your mind. We
 4. To do harm is to do yourself harm. To do an injustice is to do yourself an injustice--it degrades you.
 
 5. And you can also commit injustice by doing nothing.
+
+6. Objective judgement, now, at this very moment.
+Unselfish action, now, at this very moment.
+Willing acceptance--now, at this very moment--of all external events.
+That's all you need.
+
+7. Blot out your imagination. Turn your desire to stone. Quench your appetites. Keep your mind centered on itself.
+
+8. Animals without the *logos* are assigned the same soul, and those who have the *logos* share one too--a rational one. Just as all earthly creatures share on earth. Just as we all see by the same light, and breathe the same air--all of us who see and breathe.
+
+9. All things are drawn toward what is like them, if such a thing exists. All earthly things feel the earth's tug. All wet things flow together. And airy things as well, so they have to be forcibly prevented from mixing. Fire is naturally drawn upward by that higher fire, but ready to ignite at the slightest touch of other, earthly flame. So that anything drier than usual makes good fuel, because less of what hinders combustion is mixed in with it.
+And things that share an intelligent nature are just prone to seek out what is like them. If not more so. Because their superiority in other ways is matched by their greater readiness to mix and mingle with their counterparts.
+Even in irrational beings we see swarms and herds, and nesting, and love not unlike ours. Because they do have souls, and the bonding instinct is found in a developed form--not something we see in plants, or stones, or trees. And it's still more developed in rational beings, with their states, friendships, families, groups, their treaties and truces. And in those yet more developed there is a kind of unity even between separate things, the kind that we see in the stars. An advanced level of development can produce a sympathy even in things that are quite distinct.
+But look how things are now. The rational things are the only ones that have lost that sense of attraction--of convergence. Only there do we not see that intermingling. But however much they try to avoid it, there's no escaping. Nature is stronger. As you can see if you look closely. Concrete objects can full free of the earth more easily than humans can escape humanity.
+
+10. Humanity, divinity, and the world: all of them bearing fruit. Each fruitful in its season. Normally we limit the word to vines and other plants. Unnecessarily. The fruit of the *logos* nourishes both us and it. And other things spring from it too--of the same species as the *logos* itself.
+
