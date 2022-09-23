@@ -4,15 +4,11 @@
     "type": "split",
     "children": [
       {
-        "id": "6d9054a6812c1aa5",
+        "id": "136e9fe7cafdf006",
         "type": "leaf",
         "state": {
-          "type": "markdown",
-          "state": {
-            "file": "Reference notes/Seth's Blog.md",
-            "mode": "source",
-            "source": false
-          }
+          "type": "graph",
+          "state": {}
         }
       }
     ],
@@ -69,7 +65,6 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Reference notes/Seth's Blog.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -98,12 +93,17 @@
     "width": 300,
     "collapsed": true
   },
-  "active": "6d9054a6812c1aa5",
+  "active": "136e9fe7cafdf006",
   "lastOpenFiles": [
-    "Reference notes/Meditations.md",
-    "Reference notes/Seth's Blog.md",
+    "Reference notes/Discourses.md",
     "Reference notes/How to Take Smart Notes.md",
+    "Reference notes/Meditations.md",
+    "Reference notes/The Richest Man in Babylon.md",
     "Reference notes/Daily Stoic.md",
-    "Reference notes/The Richest Man in Babylon.md"
+    "Templates/Book.md",
+    "Zettelkasten/Life, why you like this....md",
+    "Zettelkasten/On mediocre work.md",
+    "Reference notes/Seth's Blog.md",
+    "Zettelkasten/What to do with your money.md"
   ]
 }

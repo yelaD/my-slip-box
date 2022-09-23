@@ -555,7 +555,7 @@ The post-industrial revolution is here. Do you care enough to teach your kids to
 
 
 
-##### Talker's block (September 23, 2011)
+##### Talker's block
 No one ever gets talker's block. No one wakes up in the morning, discovers he has nothing to say and sits quietly, for days or weeks, until the muse hits, until the moment is right, until all the craziness in his life has died down.
 
 Why then, is writer's block endemic?
@@ -577,3 +577,5 @@ If you know you have to write *something* every single day, even a paragraph, yo
 The second best thing to zero is something better than bad. So if you know you have to write tomorrow, your brain will start working on something better that bad. And then you'll inevitably redefine bad and tomorrow will be better than that. And on and on.
 
 Write like you talk. Often.
+
+(September 23, 2011)

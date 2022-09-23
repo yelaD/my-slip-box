@@ -1,6 +1,6 @@
 2022-04-29 10:32
 Status: #book
-Tags: [[Stoicism]]
+Tags: [[Stoicism]] [[Book]]
 
 Title: Meditations
 Author: Marcus Aurelius
