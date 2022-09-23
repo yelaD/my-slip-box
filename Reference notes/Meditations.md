@@ -1565,3 +1565,22 @@ But look how things are now. The rational things are the only ones that have los
 
 10. Humanity, divinity, and the world: all of them bearing fruit. Each fruitful in its season. Normally we limit the word to vines and other plants. Unnecessarily. The fruit of the *logos* nourishes both us and it. And other things spring from it too--of the same species as the *logos* itself.
 
+11. Convince them not to.
+If you can.
+And if not, remember: the capacity for patience was given us for a reason. The gods are patient with them too, and even help them to concrete things: health, money, fame.... Such is the gods' goodness. And yours, too, if you wanted. What's stopping you?
+
+12. Work: Not to rouse pity, not to win sympathy or admiration. Only this:
+    Activity. 
+    Stillness.
+    As the *logos* of the state requires.
+
+13. Today I escaped from anxiety. Or no, I discarded it, because it was within me, in my own perceptions--not outside.
+
+14. Known by long experience, limited in life span, debased in substance--all of it.
+    Now as then, in time of those we buried.
+
+15. Things wait outside us, hover at the door. They keep to themselves. Ask them who they are and they don't know, they can give no account of themselves.
+    What accounts for them?
+    The mind does.
+
+
