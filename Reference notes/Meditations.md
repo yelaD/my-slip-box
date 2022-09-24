@@ -1583,4 +1583,14 @@ And if not, remember: the capacity for patience was given us for a reason. The g
     What accounts for them?
     The mind does.
 
+16. Not being done to, but doing--the source of good and bad for rational and political beings. Where their own good ness, and badness is found--not in being done to, but in doing.
+
+17. A rock thrown in the air. It loses nothing by coming down, gained nothing by going up.
+
+18. Enter their minds, and you'll ding the judges you're so afraid of--and how judiciously they judge themselves.
+
+19. Everything in flux. And you too will alter in the whirl and perish, and the world as well.
+
+20. Leave other people's mistakes where they lie.
+
 
