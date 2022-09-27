@@ -9,7 +9,7 @@
         "state": {
           "type": "markdown",
           "state": {
-            "file": "Zettelkasten/On mediocre work.md",
+            "file": "Reference notes/Seth's Blog.md",
             "mode": "source",
             "source": false
           }
@@ -69,7 +69,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Zettelkasten/On mediocre work.md",
+                "file": "Reference notes/Seth's Blog.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -98,17 +98,17 @@
     "width": 300,
     "collapsed": true
   },
-  "active": "136e9fe7cafdf006",
+  "active": "415db68695620812",
   "lastOpenFiles": [
-    "Zettelkasten/Life, why you like this....md",
-    "Reference notes/Meditations.md",
-    "Reference notes/Seth's Blog.md",
-    "Reference notes/Discourses.md",
     "Reference notes/How to Take Smart Notes.md",
+    "Reference notes/Seth's Blog.md",
+    "Reference notes/Meditations.md",
+    "Zettelkasten/On mediocre work.md",
+    "Zettelkasten/Life, why you like this....md",
+    "Reference notes/Discourses.md",
     "Reference notes/The Richest Man in Babylon.md",
     "Reference notes/Daily Stoic.md",
     "Templates/Book.md",
-    "Zettelkasten/On mediocre work.md",
     "Zettelkasten/What to do with your money.md"
   ]
 }

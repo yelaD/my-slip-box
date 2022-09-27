@@ -617,3 +617,15 @@ Job creation is a false idol. The future is about gigs and assets and art and an
 This revolution is at least as big as the last one, and the last one changed everything.
 
 September 29, 2011
+
+##### The difference between management and leadership
+Managers work to get their employees to do what they did yesterday, but a little faster and a little cheaper.
+
+Leaders, on the other hand, know where they'd like to go, but understand that they can't get there without their tribe, without giving those they lead the tools to make something happen.
+
+Managers want authority. Leaders take responsibility.
+
+We need both. But we have to be careful not to confuse them. And it helps to remember that leaders are more scarce and thus more valuable.
+
+October 22, 2011
+

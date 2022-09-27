@@ -1593,4 +1593,21 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 
 20. Leave other people's mistakes where they lie.
 
+21. When we cease from activity, or follow a thought to its conclusion, it's a kind of death. And it doesn't harm us. Think about your life: childhood, boyhood, youth, old age. Every transformation a kind of dying. Was that so terrible?
+    Think about life with your grandfather, your mother, your adopted father. Realize how many other deaths and transformations and ending there have been and ask yourself: Was that so terrible?
+    Then neither will the close of your life be--it's ending and transformation.
+
+22. Go straight to the seat of intelligence--your own, the world's, your neighbor's.
+    Your own--to ground it in justice.
+    The world's--to remind yourself what it is that you're part of.
+    Your neighbor's--to distinguish ignorance from calculation. And recognize it as like yours.
+
+23. You participate in a society by your existence. Then participate in its life through your actions--all your actions. Any action not directed toward a social end (directly or indirectly) is a disturbance to your life, an obstacle to wholeness, a source of dissension. Like the man in the Assembly--a faction to himself, always out of step with the majority.
+
+24. Childish tantrums, children's games, "spirit carrying corpses"; "Odysseus in the Underworld" saw more real life.
+
+25. Identify its purpose--what makes is what it is--and examine that. (Ignore its concrete form.) Then calculate that length of time that such a thing was meant to last.
+
+
+
 
