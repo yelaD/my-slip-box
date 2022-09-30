@@ -629,3 +629,14 @@ We need both. But we have to be careful not to confuse them. And it helps to rem
 
 October 22, 2011
 
+
+##### You will be judged (or you will be ignored)
+Those are pretty much to only two choices.
+
+Being judged is uncomfortable. Snap judgements, prejudices, misinformation... all of these, combined with not enough time (how could there be) to truly know you, means that you will inevitably be misjudged, underestimated (or overestimated) and unfairly rejected.
+
+The alternative, of course, is much safer. To be ignored.
+
+Up to you.
+
+May 21, 2012

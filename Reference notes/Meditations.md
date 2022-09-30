@@ -1608,6 +1608,26 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 
 25. Identify its purpose--what makes is what it is--and examine that. (Ignore its concrete form.) Then calculate that length of time that such a thing was meant to last.
 
+26. Endless suffering--all from not allowing the mind to do its job. Enough.
+
+27. When you face someone's insults, hatred, whatever... look at his soul. Get inside him. Look at what sort of person he is. You'll find you don't need to strain to impress him.
+    But you do have to wish him well. He's your closest relative. The gods assist him just as they do you--by signs and dreams and every other way--to get the things he wants.
+
+28. The world's cycles never change--up and down, from age to age. Either the world's intelligence wills each thing (if so, accept its will), or it exercised that will once--once and for all--and all else follows as a consequence (and if so, why worry?).
+    One way or another: atoms or unity. If it's God, all is well. If it's arbitrary, don't imitate it.
+    The earth will cover us all, and then be transformed in turn, and that too will change, ad infinitum. And that as well, ad infinitum.
+    Think about them: the waves of change and alteration, endlessly breaking. And see our brief mortality for what it is.
+
+29. The design of the world is like flood, sweeping all before it. The foolishness of them--little men busy with affairs of state, with philosophy--or what they think of as philosophy. Nothing but phlegm and mucus.
+    --Well, then what?
+    Do what nature demands. Get a move on--if you have it in you--and don't worry whether anyone will give you credit for it. And don't go expecting Plato's Republic; be satisfied with even the smallest progress, and treat the outcome of it all as unimportant.
+    Who can change their minds? And without that change, what is there but groaning, slavery, a pretense of obedience? Go on and cite Alexander, Philip, Demetrius or Phalerum. Whether they knew nature's will and made themselves it's student is for them to say. And if they preferred to play the king? Well, no one forced me to be their understudy.
+    The task of philosophy is modest and straightforward. Don't tempt me to presumption.
+
+30. To see them from above: the thousands of animal herds, the rituals, the voyages on calm or stormy seas, the different ways we come into the world, share it with one another, and leave it. Consider the lives led once by others, long ago, the lives to be led by others after you, the lives led even now, in foreign lands. How many people don't even know your name. How many will soon have forgotten it. How many offer you praise now--and tomorrow, perhaps, contempt.
+    That to be remembered is worthless. Like fame. Like everything.
+
+
 
 
 
