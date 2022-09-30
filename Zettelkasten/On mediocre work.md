@@ -12,5 +12,5 @@ So might as well start now.
 ---
 # References
 1. [[Seth's Blog#Talker's block]]
-
+2. [Me blog]()
 
