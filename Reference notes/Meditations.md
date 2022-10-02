@@ -1627,7 +1627,22 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 30. To see them from above: the thousands of animal herds, the rituals, the voyages on calm or stormy seas, the different ways we come into the world, share it with one another, and leave it. Consider the lives led once by others, long ago, the lives to be led by others after you, the lives led even now, in foreign lands. How many people don't even know your name. How many will soon have forgotten it. How many offer you praise now--and tomorrow, perhaps, contempt.
     That to be remembered is worthless. Like fame. Like everything.
 
+31. Indifference to external events. 
+    And a commitment to justice in your own acts.
+    Which means: thought and action resulting in the common good.
+    What you were born to do.
 
+32. You can discard most of the junk that clutters your mind--things that exist only there--and clear out space for yourself:
+    
+    ...by comprehending the scale of the world
+    ...by contemplating infinite time
+    ...by thinking of the speed with which things change--each part of every thing; the narrow space between our birth and death; the infinite time before; the equally unbounded time that follows.
 
+33. All that you see will soon have vanished, and those who see it vanish will vanish themselves, and the ones who reached old age have no advantage over the untimely dead.
 
+34. What their minds are like. What they work at. What evokes their love and admiration.
+    Imagine their souls stripped bare. And their vanity. To suppose that their disdain could harm anyone--or their praise help them.
 
+35. To decompose is to be recomposed. That's what nature does.
+    Nature--through whom all things happen as they should, and have happened forever in just the same way, and will continue to, one way or another, endlessly.
+    That things happen for the worst and always will, that the gods have no power to regulate them, and the world is condemned to never ending evil--how can you say that?

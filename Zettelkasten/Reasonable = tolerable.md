@@ -3,7 +3,7 @@ Status: #idea
 Tags: [[Stoicism]]
 
 # Reasonable = tolerable
-If it seems reasonable to person then it must be tolerable, and can be worth enduring, if needed.
+If it seems reasonable to a person then it must be tolerable, and can be worth enduring, if needed.
 
 ---
 # References
