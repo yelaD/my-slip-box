@@ -8,3 +8,4 @@ It does not cost a dime to ask for wise advice.
 ---
 # References
 1. [[The Richest Man in Babylon]]
+2. [Me blog](https://www.dalepalmares.com/the-price-of-wise-advice/)

@@ -8,3 +8,4 @@ Knowledge is meant to be applied and put into practice, if it is not, then it is
 ---
 # References
 1. [[Discourses]]
+2. [Me blog](https://www.dalepalmares.com/use-of-knowledge/)
