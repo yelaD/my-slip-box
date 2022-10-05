@@ -9,7 +9,7 @@
         "state": {
           "type": "markdown",
           "state": {
-            "file": "Zettelkasten/The price of wise advice.md",
+            "file": "Reference notes/Seth's Blog.md",
             "mode": "source",
             "source": false
           }
@@ -69,7 +69,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Zettelkasten/The price of wise advice.md",
+                "file": "Reference notes/Seth's Blog.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -100,15 +100,15 @@
   },
   "active": "c4d1bb214bf425ee",
   "lastOpenFiles": [
-    "Zettelkasten/What wealth is.md",
+    "Reference notes/Meditations.md",
+    "Reference notes/Seth's Blog.md",
+    "Files/the circles of marketing.png",
     "Zettelkasten/The price of wise advice.md",
+    "Zettelkasten/What wealth is.md",
     "Zettelkasten/Something you should realize early in life.md",
     "Zettelkasten/In regard to becoming the best.md",
     "Zettelkasten/True progress.md",
     "Zettelkasten/The use of knowledge.md",
-    "Zettelkasten/Reasonable = tolerable.md",
-    "Zettelkasten/One type of person you should strive to be.md",
-    "Reference notes/Seth's Blog.md",
-    "Reference notes/Meditations.md"
+    "Zettelkasten/Reasonable = tolerable.md"
   ]
 }

@@ -662,3 +662,39 @@ Humility, empathy, generosity, patience and kindness, combined with the arroganc
 https://youtu.be/sknuiFywKLM
 
 June 13, 2012
+
+##### The circles of marketing
+![[the circles of marketing.png]]
+Most amateurs and citizens believe that marketing is the outer circle.
+
+Marketing = advertising, it seems. The job of marketing in this circle is to take what the factory/system/boss gives you and hype it, promote it and yell about it. This is what so make charities, politicians, insurance companies, financial advisors, computer makers and well, just about everyone does.
+
+The next circle in has so much more leverage. This is the circle or telling a story that resonates with a tribe. This is the act of creating alignment, of understanding worldviews, of embracing and elevating the weird. Smart marketers in this circle acknowledge that their product or service isn't for everyone, but bend over backwards to be sure that some people will be able to fall in love with it.
+
+The next circle in is easily overlooked. This is the act of changing what surrounds the actual product or service, adding enough usability and support and atmosphere that the perception of the product itself changes. Zappos did this for shoes. Ikea almost willfully goes in the other direction with its furniture assembly and delivery approach. When you go to an expensive restaurant, you're buying far more that what the chef cooked. Products and services are only commodities if you treat them that way.
+
+And the innermost circle is the product or service itself. When the thing you sell has communication built in, when it is remarkable and worth talking about, when it changes the game–marketing seems a lot easier. Of course, that's because you did the marketing when you invented the thing, saving you the expense and trouble of yelling about it.
+
+When in doubt, when your marketing isn't working, the answer is easy: go one circle in.
+
+July 25, 2012
+##### Corporations are not people
+You may have read Matt Fisher's story about the tragic death of his sister and the response of her insurance company. My heart goes out to his family.
+
+She had Progressive insurance and they refused to pay. Instead, the company paid to send a lawyer to coordinate to a defense with the other driver–in other words, thy paid their lawyers to go to court to prove that Matt's deceased sister, their client, was at fault. They went to court against their client even though there was significant evidence to the contrary and even though the other driver's insurance company (Nationwide) had already paid her family $25,000. The amount at stake: just $75,000.
+
+Progressive's weasely first response is here.
+
+You can read Progressive's more nuanced, but still doublespeak update here. They could have done the right thing from the start, or almost anywhere along the way, but never did, and they used fancy language to disguise that fact. Of course it's not against state law for them to settle a case. And of course losing a jury trial is not the same as settling with the family.
+
+If Progressive is proud of their tactics, they should say so. "We fight against claims to keep our costs low, saving you money." But if they're not proud, they should tell the truth, learn from it and apologize.
+
+Like many people, I'm disgusted by their strategy, but my point here is this: if someone in your neighborhood used this approach, treating others this way, if a human with a face and a house and a reputation did it, they'd have to move away in shame. If a local businessperson did this, no one in town would ever do business there again.
+
+Corporations (even though it's possible that individuals working there might mean well) play a different game all too often. They bet on short memories and the healing power of marketing dollars, commercials and discounts. Employees are pushed to focus on bureaucratic policies and quarterly numbers, not a realization that individuals, not corporations, are responsible for what they do.
+
+I hope all smart marketers realize just how dumb Progressive's marketing has been. But what I really hope is that all smart humans will realize how misguided Progressive's systems and lack of understanding  are. And of course, it's not just this one corporation, it's the mindset.
+
+Corporations don't have to act like this. It's people who can make them stop. Corporations aren't people, people are people.
+
+August 17, 2012

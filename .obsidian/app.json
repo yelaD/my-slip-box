@@ -16,5 +16,6 @@
     "Joi",
     "Tappan",
     "Zee"
-  ]
+  ],
+  "alwaysUpdateLinks": true
 }

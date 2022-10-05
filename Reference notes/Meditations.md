@@ -1646,3 +1646,47 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 35. To decompose is to be recomposed. That's what nature does.
     Nature--through whom all things happen as they should, and have happened forever in just the same way, and will continue to, one way or another, endlessly.
     That things happen for the worst and always will, that the gods have no power to regulate them, and the world is condemned to never ending evil--how can you say that?
+
+36. Disgust at what things are made of: Liquid, dust, bones, filth. Or marble as hardened dirt, gold and silver as residues, clothes as hair, purple dye as shellfish blood. And all the rest.
+    And the same with our living breath--transformed from one thing to another.
+
+37. Enough of this wretched, whining monkey life.
+    What's the matter? Is any of this new? What is it you find surprising?
+    The purpose? Look at it.
+    The material? Look at that.
+    That's all there is.
+    And the gods? Well, you could try being simpler, gentler. Even now.
+    A hundred years or three... No difference.
+
+38. If they've injured you, then they're the ones who suffer for it.
+    But have they?
+
+39. Either all things spring from one intelligent source and form a single body (and the part should accept the actions of the whole) or there are only atoms, joining and splitting forever, and nothing else.
+    So why feel anxiety?
+    Say to your mind: Are you dead? Damaged? Brutal? Dishonest?
+    Are you one of the herd? Or grazing like one?
+
+40. Either the gods have power or they don't. If they don't, why pray? If they do, then why not pray for something else instead of for things to happen or not to happen? Pray not to feel fear. Or desire, or grief. If the gods can do anything, they can surely do that for us.
+    -- But those are things the gods left up to me.
+    Then isn't it better to do what's up to you--like a free man--than to be passively controlled by what isn't, like a slave or beggar? And what makes you think the gods don't care about what's up to us?
+    Start praying like this and you'll see,
+    Not "some way to sleep with her"--but a way to stop wanting to.
+    Not "some way to get rid of him"--but a way to stop trying.
+    Not "some way to save my child"--but a way to lose your fear.
+    Redirect your prayers like that, and watch what happens.
+
+41. Epicurus: "During my illness, my conversations were not about my physical state; I did not waste my visitors' time with things of that sort, but went on discussing philosophy, and concentrated on one point in particular: how the mind can participate in the sensations of the body and yet maintain its serenity, and focus on its own well-being. Nor did I let my doctors strut about like grandees. I went on living my life the way it should be lived."
+    Like that. In illness--or any other situation.
+    Not to let go of philosophy, no matter what happens; not to bandy words with crackpots and philistines--good rules for any philosopher
+    Concentrate on what you're doing, and what you're doing with it.
+
+42. When you run up against someone else's shamelessness, ask yourself this: Is a world without shamelessness possible?
+    No.
+    Then don't ask the impossible. There have to be shameless people in the world. This is one of them.
+    The same for someone vicious or untrustworthy, or with any other defect. Remembering that the whole class has to exist will make you more tolerant of its members.
+    Another useful point to bear in mind: What qualities has nature given us to counter that defect? As an antidote to unkindness it gave us kindness. And other qualities to balance other flaws.
+    And when others stray off course, you can always try to set them straight, because every wrongdoer is doing something wrong--doing something *the wrong way.*
+    And how does it injure you anyway? You'll find that none of the people you're upset about has done anything that could do damage to your mind. But that's all that "harm" or "injury" could mean. Yes, boorish people do boorish things. What's strange or unheard-of about that? Isn't it yourself you should reproach--for not anticipating that they'd act this way? The *logos* gave you the means to see it--that a given person would act a given way--but you paid no attention. And now you're astonished that he's gone and done it. So when you call someone "untrustworthy" or "ungrateful," turn the reproach on yourself. It was *you* who did wrong. By assuming that someone with those traits deserved your trust. Or by doing them a favor and expecting something in return, instead of looking to the action itself for your reward. What else did you expect from helping someone out? Isn't it enough that you've done what your nature demands? You want a salary for it too? As if your eyes expected a reward for seeing, or your feet for walking. That's what they were made for. By doing what they were designed to do, they're performing their functions. Whereas humans were made to help each other. And when we do help others--or help them to do something--we're doing what we were designed for. We perform our function.
+
+
+### Book 10
