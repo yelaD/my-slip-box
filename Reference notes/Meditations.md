@@ -1690,3 +1690,22 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 
 
 ### Book 10
+1. To my soul:
+   Are you ever going to achieve goodness? Ever going to be simple, whole, and naked--as plain to see as the body that contains you? Know what an affectionate and loving disposition would feel like? Ever be fulfilled, ever stop desiring--lusting and longing for people and things to enjoy? Of for some other place or country--"a more temperate clime"? Or for people easier to get along with? And instead be satisfied with what you have, and accept the present--all of it. And convince yourself that everything is the gift of the gods, that things are good and always will be, whatever they decide and have in store for the preservation of that perfect entity--good and just and beautiful, creating all things, connecting and embracing them, and separated fragments to create more like them.
+   Will you ever take your stand as a fellow citizen with gods and human beings, blaming no one, deserving no one's censure?
+
+2. Focus on what nature demands, as if you were governed by that alone. Then do that, and accept it, unless your nature as a living being would be degraded by it. 
+   Then focus on what *that* nature demands, and accept that too--unless your nature as a rational being would be degraded by it.
+   And, of course, "rational" also implies "civic."
+   Follow these guidelines and don't waste time on anything else.
+
+3. Everything that happens is either endurable or not.
+   If it's endurable, then endure it. Stop complaining.
+   If it's unendurable... then stop complaining. Your destruction will mean its end as well.
+   Just remember: you can endure anything your mind can make endurable, by treating it as in your interest to do so.
+   In your interest, or in your nature.
+
+4. If they've made a mistake, correct them gently and show them where they went wrong. If you can't do that, then the blame lies with you. Or no one.
+
+5. Whatever happens to you has been waiting to happen since the beginning of time. The twining strands of fate wove both of them together: your own existence and the things that happen to you.
+
