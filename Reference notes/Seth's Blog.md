@@ -712,3 +712,18 @@ Gifted college professors don't fear online courses. Talented web designers don'
 If you're upset that the hoi polloi are busy doing what you used to do, get better instead of getting angry.
 
 December 24, 2012
+##### Should you work for free?
+That depends on what you mean by "work" and by "free."
+
+Work is what you do as a professional, when you make a promise that involves rigor and labor (physical and emotional) and risk. Work is showing up at the appointed time, whether or not you feel like it. Work is creating value on demand, and work (for the artist) means putting all of it (or most of it) on the line.
+
+So it's not work when you indulge your hobby and paint an oil landscape, but it's work when you agree to paint someone's house by next week. And it's not work when you cook dinner for friends, but it's work when you're a sous chef on the line on Saturday night.
+
+And *free*?
+
+Well, you're certainly not working for free if you get some cash at the end of the night. But what about a nine-minute segment on 60 Minutes about your new project, or a long interview with Krista Tippet on her radio show? Should you get paid for that?
+
+Clearly not. Not if you think you'll be able to turn that platform into positive change, into increased trust, into something that moves you forward.
+
+\[As more of us work with abundant ideas, not scarce resources, the question comes up more often. I'm not delving at all into the idea of *donating* your work to a cause you believe in. That's not a selfish calculation, it's a generous one, and I'm all for it, but do it for that reason. Because paying your work forward is the right thing to do.\]
+

@@ -1709,3 +1709,32 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 
 5. Whatever happens to you has been waiting to happen since the beginning of time. The twining strands of fate wove both of them together: your own existence and the things that happen to you.
 
+6. Whether it's atoms or nature, the first thing to be said is this: I am part of a world controlled by nature. Secondly: that I have a relationship with other, similar parts. And with that in mind I have no right, as a part, to complain about what is assigned me by the whole. Because what benefits the whole can't harm the parts, and the whole does nothing that doesn't benefit it. That's a trait shared by all natures, but the nature of the world is defined by a second characteristic as well: no outside force can compel it to cause itself harm.
+   So by keeping in mind the whole I form a part of, I'll accept whatever happens. And because of my relationship to other parts, I will do nothing selfish, but aim instead to join them, to direct my every action toward what benefits us all and to avoid what doesn't. If I do all that, them my life should go smoothly. As you might expect a citizen's life to go--one whose actions serve his fellow citizens, and who embraces the community's decree.
+
+7. [ ] The whole is compounded by nature of individual parts, whose destruction is inevitable ("destruction" here meaning transformation). If the process is harmful to the parts and unavoidable, then it's hard to see how the whole can run smoothly, with parts of it passing from one state to another, all of them built only to be destroyed in different ways. Does nature set out to cause its own components harm, and make them vulnerable to it--indeed, predestined to it? Or is it oblivious to what goes on? Neither one seems very plausible. But suppose we throw out "nature" and explain these things through inherent properties. It would still be absurd to say that the individual things in the world are inherently prone to change, and at the same time be astonished at it or complain--on the grounds that it was happening "contrary to nature". And least of all when things return to the state from which they came. Because our elements are either simply dispersed, or are subject to a kind of gravitation--the solid portions being pulled toward earth, and what is ethereal drawn into the air, until they're absorbed into the universal *logos*--which is subject to periodic conflagrations, or renewed through continual change.
+       And don't imagine either that those elements--the solid ones and the ethereal--are with us from our birth. Their influx took place yesterday, or the day before--from the food we ate, the air we breathed.
+       And that's what changes--not the person your mother gave birth to.
+       --But if you're inextricably linked to it through your sense of individuality?
+       That's not what we're talking about here.
+
+8. Epithets for yourself: Upright. Modest. Straightforward. Sane. Cooperative. Disinterested.
+   Try not to exchange them for others.
+   And if you should forfeit them, set about getting them back.
+   Keep in mind that "sanity" means understanding things--each individual thing--for what they are. And not losing the thread.
+   And "cooperation" means accepting what nature assigns you--accepting it willingly.
+   And "disinterest" means accepting what nature assigns you--accepting it willingly.
+   And "disinterest" means that the intelligence should rise above the movements of the flesh--the rough and the smooth alike. Should rise above fame, above death, and everything like them.
+   If you maintain your claim to these epithets--without caring if others apply them to you or not--you'll become a new person, living a new life. To keep on being the person that you've been--to keep being mauled and degraded by life you're living--is to be devoid of sense and much too fond of life. Like those animal fighters at the games--torn half to pieces, covered in blood and gore, and still pleading to be held over till tomorrow...to be bitten and clawed again.
+   Set sail, then, with this handful of epithets to guide you. And steer a steady course, if you can. Like an emigrant to the islands of the blest. And if you feel yourself adrift--as if you've lost control--then hope for the best, and put in somewhere where you can regain it. Or leave life altogether, not it anger, but matter-of-factly, straightforwardly, without arrogance, in the knowledge that you've at least done that much with your life.
+   And as you try to keep these epithets in mind, it will help you a great deal to keep the gods in mind as well. What they want is not flattery, but for rational things to be like them. For figs to do what figs were meant to do--and dogs, and bees...and people.
+
+9. Operatics, combat and confusion. Sloth and servility. Every day they blot out those sacred principles of yours--which you daydream thoughtlessly about, or just let slide.
+   Your actions and perceptions need to aim:
+   - at accomplishing practical ends
+   - at the exercise of thought
+   - at maintaining a confidence founded on understanding. An unobtrusive confidence--hidden in plain sight.
+	When will you let yourself enjoy straightforwardness? Seriousness? Or understanding individual things--their nature and substance, their place in the world, their life span, their composition, who can possess them, whose they are to give and to receive?
+
+10. Spiders are proud of catching flies, men of catching hares, fish in a net, boars, bears, Sarmatians...
+    Criminal psychology.
