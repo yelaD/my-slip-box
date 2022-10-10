@@ -727,3 +727,11 @@ Clearly not. Not if you think you'll be able to turn that platform into positive
 
 \[As more of us work with abundant ideas, not scarce resources, the question comes up more often. I'm not delving at all into the idea of *donating* your work to a cause you believe in. That's not a selfish calculation, it's a generous one, and I'm all for it, but do it for that reason. Because paying your work forward is the right thing to do.\]
 
+Harlon Ellison is gifted, inspired and entertaining, particularly in this [video](http://www.youtube.com/watch?v=mj5IV23g-fE). But his profane refusal to work for free confuses work-for-money with work-for-actually-valuable-attention. (In his case, he's right, the attention on the DVD had no real value to him. Yes, they *could* pay for that–but see then point about positive externalities, below.)
+
+Of course, many people who would have you work for free value attention far differently that you or I might. No, writing a guest blog post for a little blog is probably not valuable enough to you. No, designing a logo for the zoo for free is probably not valuable either. And the argument that it is valuable (it's good for your portfolio!) is inevitably selfish and irrational. The lions get their food, the vets get paid and even the guy selling peanuts doesn't do it for free...
+
+On the other hand, for a long time it make perfect sense for opinion leaders without big blog followings to write (for 'free') for the Huffington Post. And there's still a line of people eager to write for the New York Times op ed page, not for the money. And if Oprah calls, sure, answer her, even though her show isn't what it used to be.
+
+The more generous you are with your ideas, and the more they spread, the more likely it is your perceived value goes up.
+

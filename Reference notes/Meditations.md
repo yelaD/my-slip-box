@@ -1738,3 +1738,21 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 
 10. Spiders are proud of catching flies, men of catching hares, fish in a net, boars, bears, Sarmatians...
     Criminal psychology.
+
+11. How they all change into one another--acquire the ability to see that. Apply it constantly; use it to train yourself. Nothing is as conducive to spiritual growth.
+
+11a. He has stripped away his body and--realizing that at some point soon he will have to abandon mankind and leave all this behind--has dedicated himself to serving justice in all he does, and nature in all that happens. What people say or think about him, or how they treat him, isn't something he worries about. Only these two questions: Is what he's doing now the right thing to be doing? Does he accept and welcome what he's been assigned? He has stripped away all other occupations, all other tasks. He wants only to travel a straight path--to God, by way of law.
+
+12. Why all this guesswork? You can see what needs to be done. If you can see the road, follow it. Cheerfully, without turning back. If not, hold up and get the best advice you can. If anything gets in the way, forge on ahead, making good use of what you have on hand, sticking to what seems right. (The best goad to achieve, and the one we fall short of when we fail.)
+
+12a. To follow the *logos* in all things is to be relaxed and energetic, joyful and serious at once.
+
+13. When you wake up, ask yourself:
+    Does it make any difference to you if other people blame you for doing what's right?
+    It makes no difference.
+    Have you forgotten what the people who are so vociferous in praise or blame of others are like as they sleep and eat? Forgotten their behavior, their fears, their desires, their thefts and depredations--not physical ones, but those committed by what should be highest in them? What creates, when it chooses, loyalty, humility, truth, order, well-being.
+
+14. Nature gives and nature takes away. Anyone with sense and humility will tell her, " Give and take as you please," not out of defiance, but out of obedience and goodwill.
+
+15. Only a short time left. Live as if you were alone--out in the wilderness. No difference between here and there: the city that you live in is the world. 
+    Let people see someone living naturally, and understand what that means. Let them kill him if they can't stand it. (Better than living like this.) 
