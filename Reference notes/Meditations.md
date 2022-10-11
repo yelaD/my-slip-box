@@ -1756,3 +1756,16 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 
 15. Only a short time left. Live as if you were alone--out in the wilderness. No difference between here and there: the city that you live in is the world. 
     Let people see someone living naturally, and understand what that means. Let them kill him if they can't stand it. (Better than living like this.) 
+
+16. To stop talking about what the good man is like, and just be one.
+
+17. Continual awareness of all time and space, of the size and life span of the things around us. A grape seed in infinite space. A half twist of a corkscrew against eternity.
+
+18. Bear in mind that everything that exists is already fraying at the edges, and in transition, subject to fragmentation and to rot.
+    Or that everything was born to die.
+
+19. How they act when they eat and sleep and mate and defecate and all the rest. Then when they order and exult, or rage and thunder from on high. And yet, just consider the things they submitted to a moment ago, and the reasons for it--and the things they'll submit to again before very long.
+
+20. Each of us needs what nature gives us, when nature gives it.
+
+
