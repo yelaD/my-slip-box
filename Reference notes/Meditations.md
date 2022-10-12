@@ -1712,11 +1712,11 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 6. Whether it's atoms or nature, the first thing to be said is this: I am part of a world controlled by nature. Secondly: that I have a relationship with other, similar parts. And with that in mind I have no right, as a part, to complain about what is assigned me by the whole. Because what benefits the whole can't harm the parts, and the whole does nothing that doesn't benefit it. That's a trait shared by all natures, but the nature of the world is defined by a second characteristic as well: no outside force can compel it to cause itself harm.
    So by keeping in mind the whole I form a part of, I'll accept whatever happens. And because of my relationship to other parts, I will do nothing selfish, but aim instead to join them, to direct my every action toward what benefits us all and to avoid what doesn't. If I do all that, them my life should go smoothly. As you might expect a citizen's life to go--one whose actions serve his fellow citizens, and who embraces the community's decree.
 
-7. [ ] The whole is compounded by nature of individual parts, whose destruction is inevitable ("destruction" here meaning transformation). If the process is harmful to the parts and unavoidable, then it's hard to see how the whole can run smoothly, with parts of it passing from one state to another, all of them built only to be destroyed in different ways. Does nature set out to cause its own components harm, and make them vulnerable to it--indeed, predestined to it? Or is it oblivious to what goes on? Neither one seems very plausible. But suppose we throw out "nature" and explain these things through inherent properties. It would still be absurd to say that the individual things in the world are inherently prone to change, and at the same time be astonished at it or complain--on the grounds that it was happening "contrary to nature". And least of all when things return to the state from which they came. Because our elements are either simply dispersed, or are subject to a kind of gravitation--the solid portions being pulled toward earth, and what is ethereal drawn into the air, until they're absorbed into the universal *logos*--which is subject to periodic conflagrations, or renewed through continual change.
-       And don't imagine either that those elements--the solid ones and the ethereal--are with us from our birth. Their influx took place yesterday, or the day before--from the food we ate, the air we breathed.
-       And that's what changes--not the person your mother gave birth to.
-       --But if you're inextricably linked to it through your sense of individuality?
-       That's not what we're talking about here.
+7. The whole is compounded by nature of individual parts, whose destruction is inevitable ("destruction" here meaning transformation). If the process is harmful to the parts and unavoidable, then it's hard to see how the whole can run smoothly, with parts of it passing from one state to another, all of them built only to be destroyed in different ways. Does nature set out to cause its own components harm, and make them vulnerable to it--indeed, predestined to it? Or is it oblivious to what goes on? Neither one seems very plausible. But suppose we throw out "nature" and explain these things through inherent properties. It would still be absurd to say that the individual things in the world are inherently prone to change, and at the same time be astonished at it or complain--on the grounds that it was happening "contrary to nature". And least of all when things return to the state from which they came. Because our elements are either simply dispersed, or are subject to a kind of gravitation--the solid portions being pulled toward earth, and what is ethereal drawn into the air, until they're absorbed into the universal *logos*--which is subject to periodic conflagrations, or renewed through continual change.
+    And don't imagine either that those elements--the solid ones and the ethereal--are with us from our birth. Their influx took place yesterday, or the day before--from the food we ate, the air we breathed.
+    And that's what changes--not the person your mother gave birth to.
+    --But if you're inextricably linked to it through your sense of individuality?
+    That's not what we're talking about here.
 
 8. Epithets for yourself: Upright. Modest. Straightforward. Sane. Cooperative. Disinterested.
    Try not to exchange them for others.
@@ -1767,5 +1767,28 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 19. How they act when they eat and sleep and mate and defecate and all the rest. Then when they order and exult, or rage and thunder from on high. And yet, just consider the things they submitted to a moment ago, and the reasons for it--and the things they'll submit to again before very long.
 
 20. Each of us needs what nature gives us, when nature gives it.
+
+21. "The earth knows longing for the rain, the sky knows longing..." And the world longs to create what will come to be. I tell it "I share your longing."
+    (And isn't that what we mean by "inclined to happen"?)
+
+22. Possibilities:
+    
+    i. To keep on living (you should be used to it by now)
+    ii. To end it (it was your choice, after all)
+    iii. To die (having met your obligations)
+    
+    Those are the only options. Reason for optimism.
+
+23. Keep always before you that "this is no different from an empty field," and the things in it are the same as on a mountaintop, on the seashore, wherever. Plato gets to the heart of it: "fencing a sheepfold in the mountains, and milking goats or sheep."
+
+24. My mind. What is it? What am I making of it? What am I using it for?
+    Is it empty of thought?
+    Isolated and torn loose from those around it?
+    Melted into flesh and blended with it, so that it shares its urge?
+
+25. When a slave runs away from his master, we call him a fugitive slave. But the law of nature is a master too, and to break it is to become a fugitive.
+    To feel grief, anger or fear is to try to escape from something decreed by the ruler of all things, now or in the past or in the future. And that ruler is law, which governs what happens to each of us. To feel grief or anger or fear is to become a fugitive--a fugitive from justice.
+
+
 
 

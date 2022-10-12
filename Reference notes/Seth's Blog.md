@@ -755,3 +755,28 @@ If you're an up-and-coming band building an audience, then yes, free, free, free
 Here's the heart of it: if you're busy doing free work because it's a good way to hide from the difficult job of getting paid for your work, stop. When you confuse busy for productive, you're sabotaging your ability to do important work in the future. On the other hand, if you're turning down free gigs because the exposure frightens you, the same is true... you're ducking behind the need to get paid as a way to hide you art.
 
 February 20, 2013
+##### Thinking about money
+Many marketers work overtime to confuse us about money. They take advantage of our misunderstanding of the value of money, of our aversion to reading the fine print, of our childish need for constant gratification and most of all, our conflicted emotional connection to money.
+
+Confusing customers about money can be quite profitable if that's the sort of work you're willing to do.
+
+A few things to keep in mind:
+
+1. The amount of money you have has nothing to do with whether or not you're a good person. Being good with money is a little like being good with cards. People who are good playing cards aren't better or worse than anyone else, they're just better at playing crazy eights.
+2. Money spent on one thing is still the same as money spent on something else. A $500 needless fee on a million-dollar mortgage closing is just as much money as a $500 tip at McDonalds.
+3. If you borrow money to make money, you've done something magical. On the other hand, if you go into debt to pay your bills or buy something you want but don't need, you've done something stupid. Stupid and short-sighted and ultimately life-changing for the worse.
+4. To go along with #3: getting out of debt as fast as you possibly can is the smartest thing you can do with your money. If you need proof to confirm this, ask anyone with money to show you the math. Hint: credit card companies make more profit that just about any other companies in the world.
+5. There's no difference (in terms of the money you have) between spending money and not earning money, no difference between not-spending money and getting a raise (actually, because of taxes, you're even better off not-spending). If you've got cable TV and cell phone, you're spending $4,000 a year. $6,000 before taxes.
+6. If money is an emotional issue for you, you've just put your finger on a big part of the problem. No one who is good at building houses has an emotional problem with hammers. Place your emotional problems where they belong, and focus on seeing money as a tool.
+7. Like many important, professional endeavors, money has its own vocabulary. It won't take you long to learn what opportunity cost, investment, debt, leverage, basis points and sunk costs mean, but it'll be worth your time.
+8. Never sigh a contract or make a investment that you don't understand at least as well as the person on the other side of the transaction.
+9. If you've got a job, a steady day job, now's the time to figure out a way to earn extra income in your spare time. Freelancing, selling items on Etsy, building a side business–two hundred extra dollars every week for the next twenty years can create peace of mind for a lifetime.
+10. The chances that a small-time investor will get lucky by timing the stock market or with other opaque investments are slim, fat and none.
+11. The way you feel about giving money to good causes has a lot to do with the way you feel about money.
+12. Don't get caught confusing money with security. There are lots of ways to build a life that's more secure, starting with the stories you tell yourself, the people you surround yourself with and the cost of living you embrace. Money is one way to feel more secure, but money alone won't deliver this.
+13. Rich guys busted for insider trading weren't risking everything to make more money for the security that money can bring. In fact, the very opposite is starkly shown here. The insatiable need for more money is directly (and ironically) related to not being clear about what will ultimately bring security. Like many on this path, now they have neither money nor security.
+14. In our culture, making more money feels like winning, and winning feels like the point.
+15. Within very wide bands, more money doesn't make people happier. Learning how to think about money, though, usually does.
+16. In the long run, doing work that's important leads to more happiness than doing work that's merely profitable.
+---
+June 30, 2013
