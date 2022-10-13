@@ -1789,6 +1789,20 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 25. When a slave runs away from his master, we call him a fugitive slave. But the law of nature is a master too, and to break it is to become a fugitive.
     To feel grief, anger or fear is to try to escape from something decreed by the ruler of all things, now or in the past or in the future. And that ruler is law, which governs what happens to each of us. To feel grief or anger or fear is to become a fugitive--a fugitive from justice.
 
+26. He deposits his sperm and leaves. And then a force not his takes it and goes to work, and creates a child.
+    This...from *that*?
+    Or:
+    He pours food down his throat. And then a force not his takes it and creates sensations, desires, daily life, physical strength and so much else besides.
+    To look at these things going on silently and see the force that drives them. As we see the force that pushes things and pulls them. Not with our eyes, but just as clearly.
 
+27. To bear in mind constantly that all of this has happened before. And will happen again--the same plot from beginning to end, the identical staging. Produce them in your mind, as you know them from experience or from history: the court of Hadrian, of Antoninus. The courts of Philip, Alexander, Croesus. All just the same. Only the people different.
 
+28. People who feel hurt and resentment: picture them as the pig at the sacrifice, kicking and squealing all the way.
+    Like the man alone in his bed, silently weeping over the chains that bind us.
+    That everything has to submit. But only rational beings can do so voluntarily.
+
+29. Stop whatever you're doing for a moment and ask yourself: Am I afraid of death because I won't be able to do *this* anymore?
+
+30. When faced with people's bad behavior, turn around and ask when *you* have acted like that. When you saw money as a good, or pleasure, or social position. Your anger will subside as soon as you recognize that they acted under compulsion (what else could they do?). 
+    Or remove the compulsion, if you can.
 

@@ -780,3 +780,12 @@ A few things to keep in mind:
 16. In the long run, doing work that's important leads to more happiness than doing work that's merely profitable.
 ---
 June 30, 2013
+
+##### "People like us do things like this"
+There is no more powerful tribal marketing connection that this.
+
+More that features, more that benefits, we are driven to become a member in good standing of the tribe. We want to be respected by those we aspire to connect with, we want to know what we ought to do to be part of that circle.
+
+Not the norms of mass, but the norms of our chosen tribe.
+___ 
+July 26, 2013
