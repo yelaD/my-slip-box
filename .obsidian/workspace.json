@@ -4,16 +4,23 @@
     "type": "split",
     "children": [
       {
-        "id": "c4d1bb214bf425ee",
-        "type": "leaf",
-        "state": {
-          "type": "markdown",
-          "state": {
-            "file": "Reference notes/Seth's Blog.md",
-            "mode": "source",
-            "source": false
+        "id": "5efacab9a5a54497",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "22b9b5d9b7b8703e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Reference notes/Seth's Blog.md",
+                "mode": "source",
+                "source": false
+              }
+            }
           }
-        }
+        ],
+        "stacked": true
       }
     ],
     "direction": "vertical"
@@ -31,7 +38,9 @@
             "type": "leaf",
             "state": {
               "type": "file-explorer",
-              "state": {}
+              "state": {
+                "sortOrder": "byCreatedTime"
+              }
             }
           },
           {
@@ -98,17 +107,20 @@
     "width": 300,
     "collapsed": true
   },
-  "active": "c4d1bb214bf425ee",
+  "ribbon": {
+    "mostRecentAction": ""
+  },
+  "active": "22b9b5d9b7b8703e",
   "lastOpenFiles": [
-    "Reference notes/Seth's Blog.md",
     "Reference notes/Meditations.md",
+    "Reference notes/Seth's Blog.md",
+    "Reference notes/The Richest Man in Babylon.md",
     "Reference notes/How to Take Smart Notes.md",
     "Files/the circles of marketing.png",
     "Zettelkasten/The price of wise advice.md",
     "Zettelkasten/What wealth is.md",
     "Zettelkasten/Something you should realize early in life.md",
     "Zettelkasten/In regard to becoming the best.md",
-    "Zettelkasten/True progress.md",
-    "Zettelkasten/The use of knowledge.md"
+    "Zettelkasten/True progress.md"
   ]
 }

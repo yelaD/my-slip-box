@@ -1806,3 +1806,37 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 30. When faced with people's bad behavior, turn around and ask when *you* have acted like that. When you saw money as a good, or pleasure, or social position. Your anger will subside as soon as you recognize that they acted under compulsion (what else could they do?). 
     Or remove the compulsion, if you can.
 
+31. When you look at Satyron, see Socraticus, or Eutyches, or Hymen.
+    When you look at Euphrates, see Eutychion or Silvanus.
+    With Alciphron, see Tropaeophorus.
+    When you look at Xenophon, see Crito or Severus.
+    When you look at yourself, see any of the emperors.
+    And the same with everyone else. Then let it hit you: Where are they now?
+    Nowhere... or wherever.
+    That way you'll see human life for what it is. Smoke. Nothing. Especially when you recall that once things alter they cease to exist through all the endless years to come.
+    Then why such turmoil? To live your brief life rightly, isn't that enough?
+    The raw materials you're missing, the opportunities...! What is any of this but training--training for you *logos*, in life observed accurately, scientifically.
+    So keep at it, until it's fully digested. As a strong stomach digests whatever it eats. As a blazing fire takes whatever you throw on it, and makes it light and flame.
+
+32. That no one can say truthfully that you are not a straightforward or honest person. That anyone who thinks that believes a falsehood. The responsibility is all yours; no one can stop you from being honest or straightforward. Simply resolve not to go on living if you aren't. It would be contrary to the *logos*.
+
+33. Given the material we're made of, what's the sanest thing that we can do or say? Whatever it may be, you can do or say it. Don't pretend that anything's stopping you.
+    You'll never stop complaining until you feel the same pleasure that the hedonist gets from self-indulgence--only from doing what's proper to human being as far as circumstances--inherent or fortuitous--allow. "Enjoyment" means doing as much of what your nature requires as you can. And you can do that anywhere. A privilege not granted to a cylinder--to determine its own action. Or to water, or fire, any of the other things governed by nature alone, or by an irrational soul. Too many thing obstruct them and get in their way. But he intellect and *logos* are able to make their way through anything in their path--by inborn capacity or sheer force of will. Keep before your eyes the ease with which they do this--the ease with which the *logos* is carried through all thigs, as fire is drawn upward or a stone falls to earth, as a cylinder rolls down inclined plane.
+    That's all you need. All other obstacles either affect the lifeless body, or have no power to shake or harm anything unless misperception takes over or the *logos* surrenders voluntarily. Otherwise those they obstruct would be degraded by them immediately. In all other entities, when anything bad happens to them, it affects them for the worse. Whereas here a person is improved by it (if I can put it like that)--and we admire him for reacting as a person should.
+    And keep in mind that nothing can harm one of nature's citizen except what harms the city he belongs to. And nothing harms that city except what harms its law. And there is no so-called misfortune that can do that. So long as the law is safe, so is the city--and the citizen.
+
+34. If you've immersed yourself in the principles of truth, the briefest, most random reminder is enough to dispel all fear and pain:
+    
+    ...leaves that the wind
+    Drives earthward; such are the generations of men.
+    
+    Your children, leaves.
+    Leaves applauding loyally and heaping praise upon you, or turning around and calling down curses, sneering and mocking from a safe distance. A glorious reputation handed down by leaves. All of these "spring up in spring time"--and the wind blows them all away. And the tree puts forth others to replace them.
+    None of us have much time. and yet you act as if things were eternal--the way you fear and long for them...
+    Before long, darkness. And whoever buries you mourned in their turn.
+
+35. A healthy pair of eyes should see everything that can be seen and not say, "No! Too bright!" (which is a symptom of ophthalmia).
+    A healthy sense of hearing or smell should be prepared for any sound or scent; a healthy stomach should have the same reaction to all foods, as a mill to what it grinds.
+    So too a healthy mind should be prepared for anything. The one that keeps saying, "Are my children all right?" or "Everyone must approve of me" is like eyes that can only stand pale colors, or teeth that can handle on mush.
+
+

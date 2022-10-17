@@ -1,11 +1,13 @@
 {
   "baseFontSize": 18,
   "theme": "obsidian",
-  "cssTheme": "Atom",
+  "cssTheme": "Minimal",
   "translucency": false,
   "baseFontSizeAction": true,
   "enabledCssSnippets": [
     "red",
     "custom"
-  ]
+  ],
+  "accentColor": "",
+  "showViewHeader": false
 }

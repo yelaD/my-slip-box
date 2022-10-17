@@ -17,5 +17,6 @@
     "Tappan",
     "Zee"
   ],
-  "alwaysUpdateLinks": true
+  "alwaysUpdateLinks": true,
+  "showInlineTitle": true
 }
