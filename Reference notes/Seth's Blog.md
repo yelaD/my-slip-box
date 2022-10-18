@@ -818,3 +818,19 @@ Sorry to drone on... wrapping up then, when luxury intersects with the web, conf
 
 ---
 October 13, 2013
+
+#### The four horsemen of mediocrity
+**Deniability**–"*They* decided, created, commanded or blocked. Not my fault."
+
+**Helplessness**–"My boss won't let me."
+
+**Contempt**–"They don't pay me enough to put up with the likes of these customers."
+
+**Fear**–"It's good enough, it's not worth the risk, people will talk, this might not work..."
+
+The industrial age brought compliance and compliance brought fear and fear brought us mediocrity.
+
+The good news about fear is that once we see it, feel it and dance with it, you have a huge opportunity, the chance to make it better.
+
+---
+January 30, 2014

@@ -1839,4 +1839,17 @@ And if not, remember: the capacity for patience was given us for a reason. The g
     A healthy sense of hearing or smell should be prepared for any sound or scent; a healthy stomach should have the same reaction to all foods, as a mill to what it grinds.
     So too a healthy mind should be prepared for anything. The one that keeps saying, "Are my children all right?" or "Everyone must approve of me" is like eyes that can only stand pale colors, or teeth that can handle on mush.
 
+36. It doesn't matter how good a life you've led. There'll still be people standing around the bed who will welcome the sad event.
+    Even with the intelligent and good. Won't there be someone thinking "Finally! To be through with that old schoolteacher. Even though he never said anything, you could always *feel* him judging you." And that's for a good man. How many traits do *you* have that would make a lot of people glad to be rid of you?
+    Remember that, when the time comes. You'll be less reluctant to leave if you can tell yourself, "This is the sort of life I'm leaving. Even the people around me, the ones I spent so much time fighting for, praying over, caring about—even they want me gone, in hopes that it will make their own lives easier. How could anyone stand a longer stay here?"
+    And yet, don't leave angry with them. Be true to who you are: caring, sympathetic, kind. And not as if you were being torn away from life. But the way it is when someone dies peacefully, how the soul is released from the body—that's how you should leave them. It was nature that bound you to them—that tied the knot. And nature that now unties you.
+    I am released from those around me. Not dragged against my will, but unresisting.
+    There are things that nature demand. And this is one of them.
 
+37. Learn to ask of all actions, "Why are they doing that?"
+    Starting with your own.
+
+38. Remember that what pulls the strings is within—hidden from us. Is speech, is life, is the person. Don't conceive of the rest as part of it—the skin that contains it, and the accompanying organs. Which are tools—like a carpenter's axe, except that they're attached to us from birth, and are no more use without what moves and holds them still than the weaver's shuttle, the writer's pencil, driver's whip.
+
+
+### Book 11
