@@ -1,6 +1,6 @@
 2022-04-29 10:32
 Status: #book
-Tags: [[Stoicism]] [[Book]]
+Tags: [[Stoicism]]
 
 Title: Meditations
 Author: Marcus Aurelius
@@ -1853,3 +1853,23 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 
 
 ### Book 11
+1. Characteristics of the rational soul: Self-perception, self-examination, and the power to make of itself whatever it wants.
+   It reaps its own harvest, unlike plants (and, in a different way, animals), whose yield is gathered in by others.
+   It reaches its intended goal, no matter where the limit of its life is set. Not like dancing and theater and things like that, where the performance is incomplete if it's broken off in the middle, but at any point—no matter which one you pick—it has fulfilled its mission, done its work completely. So that it can say, "I have what I came for."
+   It surveys the world and the empty space around it, and the way it's put together. It delves into the endlessness of time to extend its grasp and comprehension of the periodic births and rebirths that the world goes through. It knows that those who come after us will see nothing different, that those who came before us saw no more than we do, and that anyone with forty years behind him and eyes in his head has seen both past and future—both alike.
+   Also characteristic of the rational soul: 
+   Affection for its neighbors. Truthfulness. Humility. Not to place anything above itself—which is characteristic of law as well. No difference here between the *logos* of rationality and that of justice.
+   
+2. To acquire indifference to pretty singing, to dancing, to the martial arts: Analyze the melody into the notes that form it, and as you hear each one, ask yourself whether you're powerless against *that*. That should be enough to deter you.
+   The same with dancing: individual movements and tableaux. And the same with martial arts.
+   And with everything—except virtue and what springs from it. Look at the individual parts and move from analysis to indifference.
+   Apply this to life as a whole.
+
+3. The resolute soul:
+   Resolute in separation from the body. And then in dissolution or fragmentation—or continuity.
+   But the resolution has to be the result of its own decision, not just in response to outside forces \[like the Christians\]. It has to be considered and serious, persuasive to other people. Without dramatics.
+
+4. Have I done something for the common good? Then I share in the benefits.
+   To stay centered on that. Not to give up.
+
+5. "And your profession?" "Goodness." (And how is that to be achieved, except by thought—about the world, about the nature of people?)

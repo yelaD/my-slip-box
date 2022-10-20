@@ -1,6 +1,6 @@
 2022-03-10 18:58
 Status: #book 
-Tags: [[Stoicism]] [[Book]]
+Tags: [[Stoicism]]
 
 Title: Daily Stoic
 Author: Ryan Holiday

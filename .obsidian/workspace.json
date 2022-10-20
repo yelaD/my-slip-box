@@ -4,16 +4,16 @@
     "type": "split",
     "children": [
       {
-        "id": "5efacab9a5a54497",
+        "id": "7bac63ea48fae090",
         "type": "tabs",
         "children": [
           {
-            "id": "22b9b5d9b7b8703e",
+            "id": "9742a8bbfbf57a82",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Reference notes/Seth's Blog.md",
+                "file": "Reference notes/Seth's Freelance Course.md",
                 "mode": "source",
                 "source": false
               }
@@ -50,7 +50,7 @@
               "type": "search",
               "state": {
                 "query": "",
-                "matchingCase": false,
+                "matchingCase": true,
                 "explainSearch": false,
                 "collapseAll": false,
                 "extraContext": false,
@@ -62,7 +62,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300
+    "width": 200
   },
   "right": {
     "id": "2c1a4b6c86827231",
@@ -78,7 +78,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Reference notes/Seth's Blog.md",
+                "file": "Reference notes/Seth's Freelance Course.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -110,17 +110,17 @@
   "ribbon": {
     "mostRecentAction": ""
   },
-  "active": "22b9b5d9b7b8703e",
+  "active": "415db68695620812",
   "lastOpenFiles": [
+    "Templates/Video.md",
+    "Templates/Book.md",
+    "Templates/Untitled.md",
+    "Reference notes/Refactoring UI.md",
+    "Reference notes/Seth's Blog.md",
+    "Reference notes/Building a Second Brain.md",
     "Reference notes/How to Take Smart Notes.md",
     "Reference notes/Meditations.md",
-    "Reference notes/Seth's Blog.md",
     "Reference notes/The Richest Man in Babylon.md",
-    "Files/the circles of marketing.png",
-    "Zettelkasten/The price of wise advice.md",
-    "Zettelkasten/What wealth is.md",
-    "Zettelkasten/Something you should realize early in life.md",
-    "Zettelkasten/In regard to becoming the best.md",
-    "Zettelkasten/True progress.md"
+    "Reference notes/Daily Stoic.md"
   ]
 }

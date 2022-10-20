@@ -8,14 +8,6 @@
       "key": "="
     }
   ],
-  "insert-template": [
-    {
-      "modifiers": [
-        "Mod"
-      ],
-      "key": "T"
-    }
-  ],
   "insert-current-time": [],
   "app:delete-file": [
     {
@@ -24,5 +16,14 @@
       ],
       "key": "Delete"
     }
-  ]
+  ],
+  "insert-template": [
+    {
+      "modifiers": [
+        "Mod"
+      ],
+      "key": "T"
+    }
+  ],
+  "workspace:new-tab": []
 }
