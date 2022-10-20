@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Reference notes/Seth's Freelance Course.md",
+                "file": "Zettelkasten/What wealth is.md",
                 "mode": "source",
                 "source": false
               }
@@ -39,7 +39,7 @@
             "state": {
               "type": "file-explorer",
               "state": {
-                "sortOrder": "byCreatedTime"
+                "sortOrder": "byCreatedTimeReverse"
               }
             }
           },
@@ -78,7 +78,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Reference notes/Seth's Freelance Course.md",
+                "file": "Zettelkasten/What wealth is.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -110,17 +110,17 @@
   "ribbon": {
     "mostRecentAction": ""
   },
-  "active": "415db68695620812",
+  "active": "9742a8bbfbf57a82",
   "lastOpenFiles": [
+    "Zettelkasten/What to do with your money.md",
+    "Zettelkasten/Reasonable = tolerable.md",
+    "Reference notes/Seth's Freelance Course.md",
     "Templates/Video.md",
     "Templates/Book.md",
     "Templates/Untitled.md",
     "Reference notes/Refactoring UI.md",
     "Reference notes/Seth's Blog.md",
     "Reference notes/Building a Second Brain.md",
-    "Reference notes/How to Take Smart Notes.md",
-    "Reference notes/Meditations.md",
-    "Reference notes/The Richest Man in Babylon.md",
-    "Reference notes/Daily Stoic.md"
+    "Reference notes/How to Take Smart Notes.md"
   ]
 }

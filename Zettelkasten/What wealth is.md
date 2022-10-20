@@ -8,3 +8,4 @@ Treat being wealthy/financially free as a goal that you have to strive towards e
 ---
 # References
 1. [[The Richest Man in Babylon]]
+2. [Me blog](https://www.dalepalmares.com/a-way-to-think-about-wealth/)
