@@ -863,3 +863,22 @@ Better is better than more.
 
 ---
 March 24, 2014
+#### Thirty five + years of projects
+I realized the other day that most people grow up thinking in terms of professional affiliations. "I'm going to be an accountant." "I'm going to work for General Dynamics."
+
+Somehow, I always thought of my career as a series of projects, not jobs. Projects... things to be invented, funded and shipped. Sometimes they take on a life of their own and last, other times, they flare and fade. But projects, one after the other, make my career. Lucky for me, the world cooperated and our entire culture shifted from one based on long-tern affiliations (you know, 'jobs') to projects.
+
+I had a two-part approach to building a career about projects. The first was to find a partner who was willing to own the lion's share of the upside in exchange for advancing resources allowing me to create the work (but always keeping equity in the project, not doing it merely for hire). Publishers are good at this, and it enabled me to bootstrap my way to scale. The second was to grow a network, technology and the confidence to be able to take on projects too big for the typical solo venture. Complicated projects, on time, is a niche that's not very crowded...
+
+The stages of a project—being stuck, seeing an outcome, sharing a vision, being rejected, finding a home, building it, editing it, launching it, planting the seeds for growth—I'm trilled it's a cycle I've been able to repeat hundreds of times over the years.
+
+There's a difference between signing on to someone else's project and starting your own. The impresario mindset of initiation and improvisation are at the heart of the project. It's yours, you own it. Might as well do something you're proud of, and something that matters, because it's your gig.
+
+Over time, the project world has changed. Thanks to digital tools, it's cheaper than ever to build and launch something based on content. Distribution is far faster and cheaper as well. We used to need a publishing partner or a partner with a platform (a record label, a media company...) to get the word out; now, in many cases, this adds time and hassle without creating sufficient benefit. Because it's easier to launch, we can spend more time focusing on what the audience wants, as opposed to merely pleasing (and pitching) the middleman. On the other hand, that makes it a lot harder to dig in and create, because there isn't that moment where someone says, "yep, I'll publish it..."
+
+For me, the trick is not to represent the client, or the publisher, or the merchant. The trick is to represent to project, to speak up for the project, to turn it into what it needs to be. And over the years, I've found that each project gets just a little more personal than the one that came before.
+
+The lack of a gatekeeper presents a fascinating shift, now. It used to be that the gatekeeper was somewhat of a partner, a ying to the your yang, a safe way to find out something might not resonate. Now, it's so much easier to go straight to market that we need to find our own internal compass, something to replace the external one we all used to depend upon...
+
+--- 
+July 10, 2014

@@ -1873,3 +1873,37 @@ And if not, remember: the capacity for patience was given us for a reason. The g
    To stay centered on that. Not to give up.
 
 5. "And your profession?" "Goodness." (And how is that to be achieved, except by thought—about the world, about the nature of people?)
+
+6. First, tragedies. To remind us of what can happen, and that it happens inevitably—and if something gives you pleasure on *that* stages, it shouldn't cause you anger on this one. You realize that these are things we all have to go through, and that even those who cry aloud "o Mount Cithaeron!" have to endure them. And some excellent lines as well. These, for example:
+   
+   If I and my two children cannot move the gods
+   The gods must have their reasons
+   
+   Or:
+   
+   And why should we feel anger at the world?
+   
+   And:
+   
+   To harvest life like standing stalks of grain
+   
+   and a good many others.
+   Then, after tragedy, Old Comedy: instructive in its frankness, its plain speaking designed to puncture pretensions. (Diogenes used the same tactic for similar ends.)
+   Then consider the Middle (and later the New) Comedy and what is aimed at—gradually degenerating into mere realism and empty technique. There are undeniably good passages, even in those writers, but what was the point of it all—the script and staging alike?
+
+7. It stares you in the face. No role is so well suited to philosophy as the one you happen to be in right now.
+
+8. A branch cut away from the branch beside it is simultaneously cut away from the whole tree. So too a human being separated from another is cut loose from the whole community.
+   The branch is cut off by someone else. But people cut themselves off—through hatred, through rejection—and don't realize that they're cutting themselves off form the civic enterprise.
+   Except that we also have a gift, given us by Zeus, who founded this community of ours. We can reattach ourselves and become once more components of the whole.
+   But if the rupture is too often repeated, it makes the severed part hard to reconnect, and to restore. You can see the difference between the branch that's been there since the beginning, remaining on the tree and growing with it, and the one that's been cut off and grafted back.
+   "One trunk, two minds." As the gardeners put it.
+
+9. As you move forward in the *logos*, people will stand in your way. They can't keep you from doing what's healthy; don't let them stop you from putting up with them either. Take care on both counts. Not just sound judgements, solid actions—tolerance as well, for those who try to obstruct us or give us trouble in other ways.
+   Because anger, too, is weakness, as much as breaking down and giving up the struggle. Both are deserters: the man who breaks and runs, and the one who lets himself be alienated from his fellow humans.
+
+10. The natural can never be inferior to the artificial; art imitates nature, not the reverse. In which case, that most highly developed and comprehensive nature—Nature itself—cannot fall short of artifice in its craftsmanship.
+    Now, all the arts move from lower goals to higher ones. Won't Nature do the same?
+    Hence justice. Which is the source of all the other virtues. For how could we do what justice requires if we are distracted by things that don't matter, if we are naive, gullible, inconstant?
+
+
