@@ -1906,4 +1906,20 @@ And if not, remember: the capacity for patience was given us for a reason. The g
     Now, all the arts move from lower goals to higher ones. Won't Nature do the same?
     Hence justice. Which is the source of all the other virtues. For how could we do what justice requires if we are distracted by things that don't matter, if we are naive, gullible, inconstant?
 
+11. It's the pursuit of these things, and your attempts to avoid them, that leave you in such turmoil. And yet they aren't seeking you out; you are the one seeking them.
+    Suspend judgment about them. And at once they will lie still, and you will be freed from fleeing and pursuing.
+
+12. The soul as a sphere in equilibrium: Not grasping at things beyond it or retreating inward. Not fragmenting outward, not sinking back on itself, but ablaze with light and looking at the truth, without and within.
+
+13. Someone despises me.
+    That's their problem.
+    Mine: not to do or say anything despicable.
+    Someone hates me. Their problem.
+    Mine: to be patient and cheerful with everyone, including them. Ready to show them their mistake. Not spitefully, or to show off my own self-control, but in an honest, upright way. Like Phocion (if he wasn't just pretending). That's what we should be like inside, and never let the gods catch us feeling anger or resentment.
+    As long as you do what's proper to your nature, and accept what the world's nature has in store—as long as you work for others' good, by any and all means—what is there that can harm you?
+
+14. They flatter one another out of contempt, and their desire to rule one another makes them bow and scrape.
+
+15. The despicable phoniness of people who say, "Listen, I'm going to level with you here." What does that mean? It shouldn't even need to be said. It should be obvious—written in block letters on your forehead. It should be audible in your voice, visible in your eyes, like a lover who looks into your face and takes in the whole story at a glance. A straightforward, honest person should be like someone who stinks: when you're in the same room with him, you know it. But false straightforwardness is like a knife in the back.
+    False friendship is the worst. Avoid it at all costs. If you're honest and straightforward and mean well, it should show in your eyes. It should be unmistakable.
 

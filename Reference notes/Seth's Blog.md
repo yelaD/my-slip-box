@@ -819,7 +819,7 @@ Sorry to drone on... wrapping up then, when luxury intersects with the web, conf
 ---
 October 13, 2013
 
-#### The four horsemen of mediocrity
+##### The four horsemen of mediocrity
 **Deniability**–"*They* decided, created, commanded or blocked. Not my fault."
 
 **Helplessness**–"My boss won't let me."
@@ -834,7 +834,7 @@ The good news about fear is that once we see it, feel it and dance with it, you 
 
 ---
 January 30, 2014
-#### Not even one note
+##### Not even one note
 Starting at the age of nine, I played the clarinet for eight years.
 
 Actually, that's not true. I took clarinet lessons for eight years when I was a kid, but I'm not sure I ever actually played it.
@@ -863,7 +863,7 @@ Better is better than more.
 
 ---
 March 24, 2014
-#### Thirty five + years of projects
+##### Thirty five + years of projects
 I realized the other day that most people grow up thinking in terms of professional affiliations. "I'm going to be an accountant." "I'm going to work for General Dynamics."
 
 Somehow, I always thought of my career as a series of projects, not jobs. Projects... things to be invented, funded and shipped. Sometimes they take on a life of their own and last, other times, they flare and fade. But projects, one after the other, make my career. Lucky for me, the world cooperated and our entire culture shifted from one based on long-tern affiliations (you know, 'jobs') to projects.
@@ -882,3 +882,14 @@ The lack of a gatekeeper presents a fascinating shift, now. It used to be that t
 
 --- 
 July 10, 2014
+##### Project management for work that matters
+1. Resist the ad hoc. Announce that this is a *project*, and that it matters enough to be treated as one.
+2. The project needs a leader, a person who takes responsibility as opposed to waiting for it to be given.
+3. Write it down. All of it. Everything that people expect, everything that people promise.
+4. Send a note confirming that you wrote it down, specifically what you heard, what it will cost and when they will have it or when they promised it.
+5. Show your work. Show us your estimates and your procedures and most of all, the work you're going to share with the public before you ship it.
+6. Keep a log, a notebook, a history of what you've done and how. You'll need it for the next project.
+7. Source control matters. Don't change things while people are reviewing them, because then we both have to do it twice.
+8. Slack is your friend. Slack is cheaper, faster and more satisfying that wishful thinking. Your project will never go as well as you expect, and might take longer than you fear.
+9. Identify and obsess about the critical path. If the longest part of the project takes less time than you planned, the entire project will take less time than you planned.
+10. Wrap it up. When you're done, take the time to identify what worked and what didn't, and help the entire team get stronger for next time.
