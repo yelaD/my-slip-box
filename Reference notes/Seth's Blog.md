@@ -893,3 +893,40 @@ July 10, 2014
 8. Slack is your friend. Slack is cheaper, faster and more satisfying that wishful thinking. Your project will never go as well as you expect, and might take longer than you fear.
 9. Identify and obsess about the critical path. If the longest part of the project takes less time than you planned, the entire project will take less time than you planned.
 10. Wrap it up. When you're done, take the time to identify what worked and what didn't, and help the entire team get stronger for next time.
+11.
+##### The wasteful fraud of sorting for youth meritocracy: Stop Stealing Dreams
+"Sorry, you didn't make the team. We did the cuts today."
+
+"We did play auditions all day yesterday, and so many people turned out, there just wasn't a role for you. We picked people who were more talented."
+
+"You're on the bench until your skills improve. We want to win."
+
+Ask the well-meaning coaches and teachers running the tryouts and choosing who gets to play, ask them who gets on stage and who gets fast tracked, and they'll explain that life is a meritocracy, and it's essential to teach kids that they're about to enter a world where people get picked based on performance.
+
+Or, they might point out that their job it to win, to put on a great show, to entertain the parents with the best performance they can create.
+
+This, all of this, is sort of dangerous, unhelpful and nonsensical.
+
+As millions head back for another year of school, I'm hoping that parents (and students) can call this out.
+
+When you're six years old and you try out for the hockey team, only two things will get you picked ahead of the others: either you're older or you were born with size or speed or some other advantage that wasn't your choice.
+
+And the junior high musical? It's pretty clear that kids are chosen based on appearance or natural singing talent, two things that weren't up to them.
+
+Soccer and football exist in school not because there's a trophy shortage, not because the school benefits from winning. They exist, I think, to create a learning experience. But when we bench people because they're not naturally good, what's the lesson?
+
+If you get a ahead for years and years because you got dealt good cards, it's not particularly likely that you will learn that in the real world, achievement is based as much on attitude and effort as it is on natural advantages. In the real world, Nobel prizes and Broadway roles and the senior VP job go to people who have figured out how to care, how to show up, how to be open to new experiences. Our culture is built around connection and charisma and learning and the ability to not quit in precisely the right moments.
+
+But that's not easy to sort for in school, so we take a shortcut and resort to trivial measures instead.
+
+What if we celebrated the students who regularly try the hardest, help each other the most and lead? What if we fast tracked those students, and made it clear to anyone else willing to adopt those attitudes that they could be celebrated too?
+
+What if you got cast, tracked or made the cut because you were resilient, hard-working and willing to set yourself up for a cycle of continuous improvement? Isn't that more important than rewarding the kid who never passes but still scores a lot of goals?
+
+Before you feature a trumpet prodigy at the jazz band concert, perhaps you could feature the kid who just won't quit. No need to tell him he's a great trumpet player–the fact is, none of these kids are Maynard Ferguson–just tell him the truth. Tell him that every single person who has made a career playing the trumpet (every single one of them) did it with effort and passion, not with lips that naturally vibrate.
+
+We're not spending nearly enough time asking each other: **What is School for?**
+
+---
+September 2, 2014
+

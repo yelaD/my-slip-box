@@ -1923,3 +1923,44 @@ And if not, remember: the capacity for patience was given us for a reason. The g
 15. The despicable phoniness of people who say, "Listen, I'm going to level with you here." What does that mean? It shouldn't even need to be said. It should be obvious—written in block letters on your forehead. It should be audible in your voice, visible in your eyes, like a lover who looks into your face and takes in the whole story at a glance. A straightforward, honest person should be like someone who stinks: when you're in the same room with him, you know it. But false straightforwardness is like a knife in the back.
     False friendship is the worst. Avoid it at all costs. If you're honest and straightforward and mean well, it should show in your eyes. It should be unmistakable.
 
+16. To live a good life:
+    We have the potential for it. If we can learn to be indifferent to what makes no difference. This is how we learn: by looking at each thing, both the parts and the whole. Keeping in mind that none of them can dictate how we perceive it. They don't impose themselves on us. They hover before us, unmoving. It is we who generate the judgements—inscribing them on ourselves. And we don't have to. We could leave the page blank—and if a mark slips through, erase it instantly.
+    Remember how brief is the attentiveness required. And then our lives will end.
+    And why is it so hard when things go against you? If it's imposed by nature, accept it gladly and stop fighting it. And if not, work out what your own nature requires, and aim at that, even if it brings you no glory.
+    None of us is forbidden to pursue our own good.
+
+17. Source and substance of each thing. What it changes into, and what it's like transformed; that nothing can harm it.
+
+18. i. My relationship to them. That we came into the world for the sake of one another. Or from another point of view, I came into it to be their guardian—as the ram is of the flock, and the bull of the herd.
+Start from this: if not atoms, then Nature—directing everything. In that case, lower things for the sake of higher ones, and higher ones for one another.
+
+ii. What they're like eating, in bed, etc. How driven they are by their beliefs. How proud they are of what they do.
+
+iii. That if they're right to do this, then you have right to complain. And if they aren't, then they do it involuntarily, out of ignorance. Because all souls are prevented from treating others as they deserve, just as they are kept from truth: unwillingly. Which is why they resent being called unjust, or arrogant, or greedy—any suggestion that they aren't good neighbors.
+
+iv. That you've made enough mistakes yourself. You're just like them.
+Even if there are some you've avoided, you have the potential.
+Even if cowardice has kept you from them. Or fear of what people would say. Or some equally bad reason.
+
+v. That you don't know for sure it *is* a mistake. A lot of things are means to some other ends. You have to know an awful lot before you can judge other people's actions with real understanding.
+
+vi. When you lose your temper, or even feel irritated: that human life is very short. Before long all of us will be laid out side by side.
+
+vii. That it's not what *they* do that bothers us: that's a problem for their minds, not ours. It's our own misperceptions. Discard them. Be willing to give up thinking of this as a catastrophe... and your anger is gone. How do you do that? By recognizing that you've suffered no disgrace. Unless disgrace is the only thing that can hurt you, you're doomed to commit innumerable offenses—to become a thief, or heaven only knows what else.
+
+viii. How much more damage anger and grief do that the things that cause them.
+
+ix. That kindness is invincible, provided it's sincere—not ironic or an act. What can even the most vicious person do if you keep treating him with kindness and gently set him straight—if you get the chance—correcting him cheerfully at the exact moment that he's trying to do you harm. "No, no, my friend. That isn't what we're here for. It isn't me who's harmed by that. It's you." And show him, gently and without pointing fingers, that it's so. That bees don't behave like this—or any other animals with a sense of community. Don't do it sardonically or meanly, but affectionately—with no hatred in your heart. And not ex cathedra or to impress third parties, but speaking directly. Even if there are other people around.
+Keep these nine points in mind, like gifts from the nine Muses, and start becoming a human being. Now and for the rest of your life.
+And along with not getting angry at others, try not to pander either. Both are forms of selfishness; both of them will do you harm. When you start to lose your temper, remember: There's nothing manly about rage. It's courtesy and kindness that define a human being—and a man. That's who possess strength and nerves and guts, not he angry whiners. To react like that brings you closer to impassivity—and so to strength. Pain is the opposite of strength, and so is anger. Both are things we suffer from, and yield to.
+...and one more thought, from Apollo:
+x. That to expect bad people not to injure others is crazy. It's to ask the impossible. And to let them behave like that to other people but expect them exempt you is arrogant—the act of a tyrant.
+
+19. Four habits of thought to watch for, and erase from your mind when you catch them. Tell yourself:
+- This thought is unnecessary.
+- This one is destructive to the people around you.
+- This wouldn't be what you really think (to say what you don't think—the definition of absurdity).
+- And the fourth reason for self-reproach: that the more divine part of you has been beaten and subdued by the degraded mortal part—the body and its stupid self-indulgence.
+
+20. Your spirit and the fire contained within you are drawn by their nature upward. But hey comply with the world's design and submit to being mingled here below. And the elements of earth and water in you are drawn by their nature downward. But are forced to rise, and take up a position not their own. So even the elements obey the world—when ordered and compelled—and man their stations until the signal to abandon them arrives.
+    So why should your intellect be the only dissenter—the only one complaining about its posting? It's not as if anything is being forced on it. Only what its own nature requires. And yet it refuses to comply, and sets off in the opposite direction. Because to be drawn toward what is wrong and self-indulgent, toward anger and fear and pain, is to revolt against nature. And for the mind to complain about anything that happens is to desert its post. It was created to show reverence—respect for the divine—no less than to act justly. That too is an element of coexistence and a prerequisite for justice.
