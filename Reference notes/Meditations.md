@@ -1964,3 +1964,16 @@ x. That to expect bad people not to injure others is crazy. It's to ask the impo
 
 20. Your spirit and the fire contained within you are drawn by their nature upward. But hey comply with the world's design and submit to being mingled here below. And the elements of earth and water in you are drawn by their nature downward. But are forced to rise, and take up a position not their own. So even the elements obey the world—when ordered and compelled—and man their stations until the signal to abandon them arrives.
     So why should your intellect be the only dissenter—the only one complaining about its posting? It's not as if anything is being forced on it. Only what its own nature requires. And yet it refuses to comply, and sets off in the opposite direction. Because to be drawn toward what is wrong and self-indulgent, toward anger and fear and pain, is to revolt against nature. And for the mind to complain about anything that happens is to desert its post. It was created to show reverence—respect for the divine—no less than to act justly. That too is an element of coexistence and a prerequisite for justice.
+
+21. "If you don't have a consistent goal in life, you can't live it in a consistent way."
+    Unhelpful, unless you specify a goal.
+    There is no common benchmark for all the things that people think are good—except for a few, the ones that affect us all. So the goal should be a common one—a civic one. If you direct all your energies toward that, your actions will be consistent. And so will you.
+
+22. The town mouse and the country mouse. Distress and agitation of the town mouse.
+
+23. Socrates used to call popular beliefs "the monster under the bed"—only useful for frightening children with.
+
+24. At festivals the Spartans put their guests' seats in the shade, but sat themselves down anywhere.
+
+25. Socrates declining Perdiccas's invitation "so as to avoid dying a thousand deaths" (by accepting a favor he couldn't pay back).
+
