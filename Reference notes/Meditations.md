@@ -1977,3 +1977,13 @@ x. That to expect bad people not to injure others is crazy. It's to ask the impo
 
 25. Socrates declining Perdiccas's invitation "so as to avoid dying a thousand deaths" (by accepting a favor he couldn't pay back).
 
+26. This advice from Epicurean writings: to think continually of one of the men of old who lived a virtuous life.
+
+27. The Pythagoreans tell us look at the start at daybreak. To remind ourselves how the complete the tasks assigned them—always the same tasks, the same way. And their order, purity, nakedness. Stars wear no concealment.
+
+28. Socrates dressed in a towel, the time Xanthippe took his cloak and wen out. The friends who were embarrassed and avoided him when they saw him dressed like that, and what Socrates said to them.
+
+29. Mastery of reading and writing required a master. Still more so life.
+
+30. "... For you/Are but a slave and have no claim to *logos*."
+
