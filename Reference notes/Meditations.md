@@ -1987,3 +1987,17 @@ x. That to expect bad people not to injure others is crazy. It's to ask the impo
 
 30. "... For you/Are but a slave and have no claim to *logos*."
 
+31. "But my heart rejoiced."
+
+32. "And jeer at virtue with their taunts and sneers."
+
+33. Stupidity is expecting figs in winter, or children in old age.
+
+34. As you kiss your son good night, says Epictetus, whisper to yourself, "He may be dead in the morning."
+    Don't tempt fate, you say.
+    By talking about a natural event? Is fate tempted when we speak of grain being reaped?
+
+35. Grapes.
+    Unripe...ripened...then raisins.
+    Constant transition.
+    Not the "not" but the "not yet."
