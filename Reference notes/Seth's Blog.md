@@ -1043,3 +1043,16 @@ Welcome to projectworld.
 
 ---
 June 9, 2016
+##### The problem with complaining about the system
+...is that the system can't hear you. Only people can.
+
+And the problem is that people in the system are too often swayed to believe that they have no power over the system, that they are merely victims of it, pawns, cogs in a machine bigger that themselves.
+
+Alas, when the system can't hear you, and those who can believe they have no power, nothing improves.
+
+Systems don't mistreat us, misrepresent us, waste our resources, govern poorly, support an unfair status quo and generally screw things up – people do.
+
+If we care enough, we can make it change.
+
+---
+June 24, 2016

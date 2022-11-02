@@ -2001,3 +2001,18 @@ x. That to expect bad people not to injure others is crazy. It's to ask the impo
     Unripe...ripened...then raisins.
     Constant transition.
     Not the "not" but the "not yet."
+
+36. "No thefts of free will reported."\[—Epictetus.\]
+
+37. "We need to master the art of acquiescence. We need to pay attention to our impulses, making sure they don't go unmoderated, that they benefit others, that they're worthy of us. We need to steer clear of desire in any form and not try to avoid what's beyond our control."
+
+38. "This is not a debate about just anything," he said, "but about sanity itself."
+
+39. Socrates: What do you want, rational minds or irrational ones?
+    —Rational ones.
+    Healthy or sick?
+    —Healthy.
+    Then work to obtain them.
+    —We already have.
+    Then why all this squabbling?
+
