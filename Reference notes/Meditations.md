@@ -2016,3 +2016,25 @@ x. That to expect bad people not to injure others is crazy. It's to ask the impo
     —We already have.
     Then why all this squabbling?
 
+
+### Book 12
+1. Everything you're trying to reach—by taking the long way round—you could have right now, this moment. If you'd only stop thwarting your own attempts. If you'd only let go of the past, entrust the future to Providence, and guide the present toward reverence and justice.
+   Reverence: so you'll accept what you're allotted. Nature intended is for you, and you for it.
+   Justice: so that you'll speak the truth, frankly and without evasions, and act as you should—and as other people deserve.
+   Don't let anything deter you: other people's misbehavior, your own misperceptions, what people will say, or the feelings of the body that covers you (let the affected part take care of those). And if, when it's time to depart, you shunt everything aside except your mind and the divinity within... if it isn't ceasing to live that you're afraid of but never beginning to live properly...then you'll be worthy of the world that made you.
+   No longer an alien in your own land.
+   No longer shocked by everyday events—as if they were unheard-of aberrations.
+
+2. God sees all our souls freed from their fleshly containers, stripped clean of their bark, cleansed of their grime. He grasps with his intelligence alone what was poured and channeled from himself into them. If you learn to do the same, you can avoid a great deal of distress. when you see through the flesh that covers you, will you be unsettled by clothing, mansions, celebrity—the painted sets, the costume cupboard?
+
+3. You three components: body, breath, mind. Two are yours in trust; to the third alone you have clear title.
+   If you can cut yourself—your mind—free of what other people do and say, of what you've said or done, of the things that you're afraid will happen, the impositions of the body that contains you and the breath within, and what the whirling chaos sweeps in from outside, so that the mind is freed from fate, brought to clarity, and lives life on its own recognizance—doing what's right, accepting what happens, and speaking the truth—
+   If you can cut free of impressions that cling to the mind, free of the future and the past—can make yourself, as Empedocles says, "a sphere rejoicing in its perfect stillness," and concentrate on living what can be lived (which means the present)... then you can spend the time you have left in tranquility. And in kindness. And at peace with the spirit within you.
+
+4. It never ceases to amaze me: we all love ourselves more that other people, but care more about their opinion that our own. If a god appeared to us—or a wise human being, even—and prohibited us from concealing our thoughts or imagining anything without immediately shouting it out, we wouldn't make it through a single day. That's how much we value other people's opinions—instead of our own.
+
+5. How is it that the gods arranged everything with such skill, such care for our well-being, and somehow overlooked one thing: that certain people—in fact, the best of them, the god's own partners, the ones whose piety and good works brought them closest to the divine—that these people, when they die, should cease to exist forever? Utterly vanished.
+   Well, assuming that's really true, you can be sure they would have arranged things differently, if that had been appropriate. If it were the right thing to do, they could have done it, and if it were natural, nature would have demanded it. So from the fact that they didn't—if that's the case—we can conclude that it was inappropriate.
+   Surely you can see yourself that to ask the question is to challenge the gods' fairness. And why would you be bringing in fairness unless the gods are, in fact fair—and absolutely so?
+   And if they are, how could they have carelessly overlooked something so unfair—so illogical—in setting up the world?
+

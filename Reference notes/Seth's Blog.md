@@ -1056,3 +1056,19 @@ If we care enough, we can make it change.
 
 ---
 June 24, 2016
+
+##### Uninformed dissent
+"I'm not sure what it is, but I'm against it."
+
+It's a mistake to believe that people know all the facts before they decide.
+
+In fact, most of the time, we decide and then figure out if we need to get some facts to justify our instinct.
+
+There are two common causes of uninformed dissent:
+
+The first is a person who fears change, or is quite happy with the status quo. He doesn't have to read your report or do the math or listen to the experts, because the question is, "change" and his answer is, "no."
+
+The second (quite common in a political situation), is the tribal imperative that people like us do things like this. No need to do the science, or understand the consequence or ask hard questions. Instead, focus on the emotional/cultural elements and think about the facts later.
+
+---
+June 25, 2016
