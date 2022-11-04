@@ -2038,3 +2038,24 @@ x. That to expect bad people not to injure others is crazy. It's to ask the impo
    Surely you can see yourself that to ask the question is to challenge the gods' fairness. And why would you be bringing in fairness unless the gods are, in fact fair—and absolutely so?
    And if they are, how could they have carelessly overlooked something so unfair—so illogical—in setting up the world?
 
+6. Practice even what seems impossible.
+   The left hand is useless at almost everything, for lack of practice. But it guides the reins better than the right. From practice.
+
+7. The condition of soul and body when death comes for us.
+   Shortness of life.
+   Vastness of time before and after.
+   Fragility of matter.
+
+8. To see the causes of things stripped bare. The aim of action.
+   Pain. Pleasure. Death. Fame.
+   Who is responsible for our own restlessness.
+   That no one obstructs us.
+   That it's all in how you perceive it.
+
+9. The student as boxer, not fencer.
+   The fencer's weapon is picked up and put down again.
+   The boxer's is part of him. All he has to do is clench his fist.
+
+10. To see things as they are. Substance, cause and purpose.
+
+
