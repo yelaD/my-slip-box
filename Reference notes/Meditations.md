@@ -2058,4 +2058,16 @@ x. That to expect bad people not to injure others is crazy. It's to ask the impo
 
 10. To see things as they are. Substance, cause and purpose.
 
+11. The freedom to do only what God wants, and accept whatever God sends us.
+	1. What it's made of.
 
+12. The gods are not to blame. They do onthign wrong, on purpose or by accident. Nor ment either; they don't do it on purpose. No one is to blame.
+
+13. The foolishness of people who are surprised by anything that happens. Like travelers amazed at foreign customs.
+
+14. Fatal necessity, and inescapable order. Or benevolent Providence. Or confusion—random and undirected.
+    If it's an inescapable necessity, why resist it?
+    If it's Providence, and admits of being worshipped, then try to be worthy of God's aid.
+    If it's confusion and anarchy, then be grateful that on this raging sea you have a mind to guide you. And if the storm should carry you away, let it carry off flesh, breath and all the rest, but not the mind. Which can't be swept away.
+
+15. The lamp shines until it is put out, without losing its gleam, and yet in you it all gutters out so early—truth, justice, self-control? 
