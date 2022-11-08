@@ -4,7 +4,7 @@
   "fileSortOrder": "byCreatedTime",
   "legacyEditor": false,
   "livePreview": true,
-  "spellcheck": false,
+  "spellcheck": true,
   "communityThemeSortOrder": "download",
   "newFileLocation": "folder",
   "newFileFolderPath": "Zettelkasten",

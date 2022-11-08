@@ -2071,3 +2071,25 @@ x. That to expect bad people not to injure others is crazy. It's to ask the impo
     If it's confusion and anarchy, then be grateful that on this raging sea you have a mind to guide you. And if the storm should carry you away, let it carry off flesh, breath and all the rest, but not the mind. Which can't be swept away.
 
 15. The lamp shines until it is put out, without losing its gleam, and yet in you it all gutters out so early—truth, justice, self-control? 
+
+16. When someone seems to have injured you:
+    But how can I be sure? And in any case, keep in mind:
+    - that he's already been tried and convicted—by himself. (Like scratching your own eyes out.)
+    - that to expect a bad person not to harm others is like expecting fig trees not to scerete juices, babies not to cry, horses not to neigh—the inevitable not to happen.
+    What else could they do—with that sort of character?
+    If you're still angry, then get to work on that.
+
+17. If it's not right, don't do it. If it's not true, don't say it. Let your intention be
+
+18. At all times, look at the thing itself—the thing behing the appearance—and unpack it by analysis:
+    - cause
+    - substance
+    - purpose
+    - and the length of time it exists.
+
+19. It's time you realized that you have something in you more powerful and miraculous that the things that affect you and make you have like a puppet.
+    What's in my thoughts at this moment? Fear? Jealousy? Desire? Feelings like that?
+
+20. To undertake nothing:
+    i. at random or without a purpose;
+    ii. for any reason but tho common good.

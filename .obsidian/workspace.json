@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Reference notes/Meditations.md",
+                "file": "Reference notes/Seth's Blog.md",
                 "mode": "source",
                 "source": false
               }
@@ -78,7 +78,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Reference notes/Meditations.md",
+                "file": "Reference notes/Seth's Blog.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -109,9 +109,9 @@
   },
   "active": "cbffe63e32b15b94",
   "lastOpenFiles": [
+    "Reference notes/Meditations.md",
     "Reference notes/Seth's Blog.md",
     "Reference notes/How to Take Smart Notes.md",
-    "Reference notes/Meditations.md",
     "Reference notes/The Richest Man in Babylon.md",
     "Reference notes/Daily Stoic.md",
     "Zettelkasten/Reasonable = tolerable.md",
