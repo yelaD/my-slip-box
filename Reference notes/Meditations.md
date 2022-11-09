@@ -2092,4 +2092,24 @@ x. That to expect bad people not to injure others is crazy. It's to ask the impo
 
 20. To undertake nothing:
     i. at random or without a purpose;
-    ii. for any reason but tho common good.
+    ii. for any reason but the common good.
+
+21. That before long you'll be no one, and nowhere. Like all the things you see now. All the people now living.
+    Everything's destiny is to change, to be transformed, to perish. So that new things can be born.
+
+22. It's all in how you perceive it. You're in control. You can dispence with misperception at will, like rounding the point. Serenity, total calm, safe anchorage.
+
+23. A given action that stops when it's supposed to is none the worse for stopping. Nor the person engaged in it either. So too with the succession of actions we call "life." If it ends when it's supposed to, it's none the worse for that. And the person who comes to the end of the line has no cause for complaint. The time and stopping point are set by nature—our own nature, in some cases (death from old age); or nature as a whole, whose parts, shifting and changing, constantly renew the world, and keep it on schedule.
+    Nothing that benefits all things can be ugly or out of place. The end of life is not an evil—it doesn't disgrace us. (Why should we be ashamed of an involuntary act that injures no one?). It's a good thing—scheduled by the world, promoting it, promoted by it.
+    This is how we become godlike—following God's path, and reason's goals.
+
+24. Three things, essential at all times:
+    i(a). your own actions: that they're not arbitrary or different from what abstract justice would do.
+    i(b). external events: that they happen randomly or by design. You can't complain about chance. You can't argue with Providence.
+    ii. what all things are like, from the planting of the seed to the quickening of life, and from its quickening to its relinquishment. Where the parts came from and where they return to.
+    iii. that if they were suddenly lifted up and could see life and its variety from a vast height, and at the same time all things around you, in the sky and beyond it, you'd see how pointless it is. And no matter how often you saw it, it would be the same: the same life forms, the same life span.
+    
+    Arrogance...about this?
+
+25. Throw out your misperceptions and you'll be fine. (And who's stopping you from throwing them out?)
+

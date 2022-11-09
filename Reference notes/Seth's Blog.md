@@ -1136,3 +1136,10 @@ And, if you're someone who finds that your narrative isn't helping you make the 
 
 ---
 July 6, 2016
+##### Just because you're right
+You may be right, but that doesn't mean that people will care. Or pay attention. Or take action.
+
+Just because you're right, doesn't mean that they're going to listen.
+
+It takes more than being right to earn attention and action.
+
