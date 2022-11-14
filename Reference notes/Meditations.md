@@ -2113,3 +2113,52 @@ x. That to expect bad people not to injure others is crazy. It's to ask the impo
 
 25. Throw out your misperceptions and you'll be fine. (And who's stopping you from throwing them out?)
 
+26. To be angry at something means you've forgotten:
+    That everything that happens is natural.
+    That the responsibility is theirs, not yours.
+    And further...
+    That whatever happens has always happened, and always will, and is happening at this very moment, everywhere. Just like this.
+    What links one human being to all humans: not blood, or birth, but mind.
+    And...
+    That an individual's mind is God and of God.
+    That nothing belongs to anyone. Children, body, life itself—all of them come from that same source.
+    That it's all you choose to see things.
+    That the present is all we have to live in. Or to lose.
+
+27. Constantly run down the list of those who felt intense anger at something: the most famous, the most unfortunate, the most hated, the most whatever. And ask: Where is all that now? Smoke, dust, legend...or not even a legend. Think of all the examples: Fabius Catullinus in the country, Usuius Pupus in the orchard, Stertinius At Baiae, Tiberius on Capri, Velius Rufus...obsession and arrogance.
+    And how trivial the things we want so passionately are. And how much more philosophical it would be to take what we're given and show uprightness, self-control, obedience to God, without making a production of it. There's nothing more insufferable than people who boast about their own humility.
+
+28. People ask, "Have you ever seen the gods you worship? How can you be sure they exist?"
+    Answers:
+    i. Just look around you.
+    ii. I've never seen my soul either. And yet I revere it.
+    That's how I know the gods exist and why I revere them—from having felt  their power, over and over.
+
+29. Salvation: to see each thing for what it is—its nature and its purpose.
+    To do only what is right, say only what is true, without holding back.
+    What else could be but to live life fully—to pay out goodness like the rings of a chain, without the slightest gap.
+
+30. Singular, not plural:
+    Sunlight. Though broken up by walls and mountains and a thousand other things.
+    Substance. Though split into a thousand forms, variously shaped.
+    Life. Though distributed among a thousand different natures with their individual limitations.
+    Intelligence. Even if it seems to be divided.
+    The other components—breath, matter—lack any awareness or connection to one another (yet unity and its gravitational pull embrace them too).
+    But intelligence in uniquely drawn toward what is akin to it, and joins with it inseparably, in shared awareness.
+
+31. What is it you want? To keep on breathing? What about feeling? desiring? growing? ceasing to grow? using your voice? thinking? Which of them seems worth having?
+    But if you can do without them all, then continue to follow the *logos*, and God. To the end. To prize those other things—to grieve because death deprives us of them—is an obstacle.
+
+32. The fraction of infinity, of that vast abyss of time, allotted to each of us. Absorbed in an instant into eternity.
+    The fraction of all substance, and all spirit.
+    The fraction of the whole earth you crawl about on.
+    Keep all that in mind, and don't treat anything as important except doing what your nature demands, and accepting what Nature sends you.
+
+33. How the mind conducts itself. It all depends on that. All the rest is within its power, or beyond its control—corpses and smoke.
+
+34. An incentive to treat death as unimportant: even people whose only morality is pain and pleasure can manage that much.
+
+35. If you make ripeness alone your good...
+    If a few actions more or less, governed by the right *logos*, are merely a few more or less..
+    If it makes no difference whether you look at the world for this long or that long...
+    ...then death shouldn't scare you.

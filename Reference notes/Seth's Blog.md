@@ -1143,3 +1143,13 @@ Just because you're right, doesn't mean that they're going to listen.
 
 It takes more than being right to earn attention and action.
 
+
+##### Empathy is difficult
+If you believed what he believes, you'd do precisely what he's doing.
+
+Think about that for a second. People act based on how they see the world. Every single time.
+
+Understanding someone else's story is hard, a job that's never complete, but it's worth the effort.
+
+---
+July 30, 2016
