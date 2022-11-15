@@ -1153,3 +1153,14 @@ Understanding someone else's story is hard, a job that's never complete, but it'
 
 ---
 July 30, 2016
+
+##### The lottery winners (a secret of unhappiness)
+You're going to have to fight for every single thing, forever and ever. It's really unlikely that they will pick you, anoint you, or hand you the audience and support that you seek.
+
+No one will ever realize just how extraordinary you are, how generous, charismatic, or caring.
+That pretty much doesn't happen, except for just a handful of people who win some sort of cosmic lottery, who get 'discovered' at a drug store and made a movie star, who are on the fast track to CEO of the Fortune 500, who get the big label deal and the gold records, merely for being in the right place at the right time.
+Those people, it turns out, those few, end up unhappy. You might imagine that you'd like to be in their shoes, but they spend every day feeling both entitled and fraudulent.
+You, on the other hand, get the privilege of the struggle, of working your ass off to make a difference.
+
+---
+August 15, 2016

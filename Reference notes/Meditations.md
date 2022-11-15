@@ -2162,3 +2162,9 @@ x. That to expect bad people not to injure others is crazy. It's to ask the impo
     If a few actions more or less, governed by the right *logos*, are merely a few more or less..
     If it makes no difference whether you look at the world for this long or that long...
     ...then death shouldn't scare you.
+
+36. You've lived as a citizen in a great city. Five years or a hundred—what's the difference? The laws make no distinction.
+    And to be sent away from it, not by a tyrant or a dishonest judge, but by Nature, who first invited you in—why is that so terrible?
+    Like the impresario ringing down the curtain on an actor:
+    "But I've only gotten through three acts...!"
+    Yes. This will be a drama in three acts, the length fixed by the power that directed your creation, and now directs your dissolution. Neither was yours to determine. So make your exit with grace—the same grace shown to you. 
