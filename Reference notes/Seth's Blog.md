@@ -1164,3 +1164,14 @@ You, on the other hand, get the privilege of the struggle, of working your ass o
 
 ---
 August 15, 2016
+##### Marketing in four steps
+The first step is to invent a thing worth making, a story worth telling, a contribution worth talking about.
+
+The second step is to design and build it in a way that people will actually benefit from and care about.
+
+The third one is the one everyone gets all excited about. This is the step where you tell the story to the right people in the right way.
+
+The last step is so often overlooked: The part where you show up, regularly, consistently and generously, for years and years, to organize and lead and build confidence in the change you seek to make.
+
+---
+August 21, 2016
