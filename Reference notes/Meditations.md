@@ -6,7 +6,6 @@ Title: Meditations
 Author: Marcus Aurelius
 
 ---
-
 ### Book 1 - Debts and Lessons
 
 1. **My Grandfather Verus**

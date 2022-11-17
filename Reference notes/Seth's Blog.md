@@ -1175,3 +1175,22 @@ The last step is so often overlooked: The part where you show up, regularly, con
 
 ---
 August 21, 2016
+##### Temperament is a skill
+Throwing tantrums, calling names, not doing the reading, making things up, demonizing the other, impulsivity, egomaniacal narcissism, breaking big promises...
+
+Waiting your turn, asking hard questions, thinking about others, slowing down in key moments...
+
+Telling the truth, taking responsibility...
+
+Giving others a chance to share their ideas, attracting and trusting talented people, trusting the right things and being skeptical of the others...
+
+These are all skills (or lack thereof).
+
+Somewhere along the way, we accepted the baked-in, unchanging, what-you-see-is-what-you-get view of the world. It lets us off the hook, of course, because if this is the way we are, it's certainly not our fault.
+
+The bravest and most optimistic thing we can do, though, is see that each of us has the opportunity to do precisely the opposite. We have far more choices, far more control and far more responsibility that we give ourselves (and others) credit for.
+
+Temperament matters. A lot.
+
+---
+August 23, 2016

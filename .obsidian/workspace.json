@@ -8,12 +8,12 @@
         "type": "tabs",
         "children": [
           {
-            "id": "cbffe63e32b15b94",
+            "id": "84f5219fff40d401",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Reference notes/Seth's Blog.md",
+                "file": "Reference notes/Leaves of Grass.md",
                 "mode": "source",
                 "source": false
               }
@@ -78,7 +78,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Reference notes/Seth's Blog.md",
+                "file": "Reference notes/Leaves of Grass.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -107,17 +107,17 @@
     "width": 300,
     "collapsed": true
   },
-  "active": "cbffe63e32b15b94",
+  "active": "84f5219fff40d401",
   "lastOpenFiles": [
-    "Reference notes/Meditations.md",
-    "Reference notes/Seth's Blog.md",
+    "Reference notes/Seth's Freelance Course.md",
+    "Reference notes/Leaves of Grass.md",
     "Reference notes/How to Take Smart Notes.md",
-    "Files/the circles of marketing.png",
-    "Files/Pasted image 20221109140354.png",
-    "Files/Pasted image 20221021100035.png",
-    "Files/Pasted image 20221021100120.png",
-    "Reference notes/The Richest Man in Babylon.md",
-    "Reference notes/Daily Stoic.md",
-    "Zettelkasten/Reasonable = tolerable.md"
+    "Reference notes/Seth's Blog.md",
+    "Reference notes/Building a Second Brain.md",
+    "Templates/Book.md",
+    "Templates/Video.md",
+    "Templates/Core Zettel idea.md",
+    "Templates/Map of Content.md",
+    "Reference notes/Refactoring UI.md"
   ]
 }
