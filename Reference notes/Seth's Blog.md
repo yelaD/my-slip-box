@@ -1194,3 +1194,20 @@ Temperament matters. A lot.
 
 ---
 August 23, 2016
+##### The paradox of the flawless record
+If your work has ever been criticized, it's unlikely you have any work.
+
+Creating work is the point, though, which means that in order to do something that matters, you're going to be criticized.
+
+If your goal is to be universally liked and respected and understood, then, it must mean that your goal is not to do something that matters.
+
+Which requires hiding.
+
+Hiding, of course, isn't the point.
+
+Hence the paradox. You don't want to be criticized and you do want to matter.
+
+The solution: Create work that gets criticized. AND, have the discernment to tell the difference between useful criticism (rare and precious) and the stuff worth ignoring (everything else).
+
+---
+September 04, 2016
