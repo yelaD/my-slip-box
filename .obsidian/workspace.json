@@ -8,12 +8,12 @@
         "type": "tabs",
         "children": [
           {
-            "id": "fc39c9e72575b1ed",
+            "id": "07b62709bc382bb2",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Reference notes/Seth's Blog.md",
+                "file": "Reference notes/The Complete Stories by Dorothy Parker.md",
                 "mode": "source",
                 "source": false
               }
@@ -78,7 +78,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Reference notes/Seth's Blog.md",
+                "file": "Reference notes/The Complete Stories by Dorothy Parker.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -107,17 +107,17 @@
     "width": 300,
     "collapsed": true
   },
-  "active": "fc39c9e72575b1ed",
+  "active": "07b62709bc382bb2",
   "lastOpenFiles": [
     "Reference notes/The Collected Poems of Sylvia Plath.md",
-    "Reference notes/The Richest Man in Babylon.md",
     "Reference notes/Leaves of Grass.md",
     "Reference notes/Seth's Freelance Course.md",
-    "Reference notes/How to Take Smart Notes.md",
-    "Reference notes/Seth's Blog.md",
     "Reference notes/Building a Second Brain.md",
-    "Templates/Book.md",
-    "Templates/Video.md",
-    "Templates/Core Zettel idea.md"
+    "Reference notes/Refactoring UI.md",
+    "Reference notes/Seth's Blog.md",
+    "Reference notes/How to Take Smart Notes.md",
+    "Reference notes/Meditations.md",
+    "Reference notes/The Richest Man in Babylon.md",
+    "Reference notes/Daily Stoic.md"
   ]
 }

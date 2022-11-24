@@ -1237,3 +1237,16 @@ Absorb the anxiety if you wish, spread it if you must, but understand that it's 
 
 ---
 September 25, 2016
+##### Wedding syndrome
+Running a business is a lot more important than starting one.
+
+Choosing and preparing for the job you'll do for the next career is a much more important task than getting that job. Serving is more important than the campaign.
+
+And a marriage is always more important than a wedding.
+
+It's tempting to focus on the product launch, on the interview, on the next thing. Tempting, but ultimately a waste.
+
+Our culture is organized around transitions, but they're a distraction. What is says on your wedding invitation doesn't matter a whole lot in the long run.
+
+---
+September 27, 2016
