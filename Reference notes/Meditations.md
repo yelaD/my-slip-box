@@ -1118,15 +1118,6 @@ You can return to life. Look at things as you did before. And life returns.
 Surrounded as we are by all of this, we need to practice acceptance. Without disdain. But remembering that our own worth is measured by what we devote our energy to.
 
 4. Focus on what is said when you speak and on what results from each action. Know what the one aims at, and what the other me
-5. 
-6. 
-7. 
-8. 
-9. 
-10. 
-11. 
-12. 
-13. ans.
 
 5. Is my intellect up to this? If so, then I'll put it to work, like a tool provided by nature. And if it isn't then I'll turn the job over to someone who can do better--unless I have no choice.
 Or I do the best I can with it, and collaborate with whoever can make use of it, to do what the community needs done. Because whatever I do--alone or with others--can aim at one thing only: what squares with requirements.
