@@ -6,7 +6,7 @@ Title: The Art of War
 Author: Sun Tzu
 
 ---
-### I. Laying Plans
+### 1. Laying Plans
 1. Sun Tzu said: The art of war is of vital importance to the State.
 
 2. It is a matter of life and death, a road either to safety or to ruin. Hence it is a subject of inquiry which can on no account be neglected.
@@ -62,3 +62,26 @@ Author: Sun Tzu
 25. These military devices, leading to victory, must not be divulged beforehand.
 
 26. Now the general who wins a battle makes many calculations in his temple ere the battle is fought. The general who loses a battle makes but  few calculations beforehand. Thus do many calculations lead to victory, and few calculations to defeat: how much more no calculation at all! It is by attention to this point that I can foresee who is likely to win or lose.
+
+
+### 2. Waging War
+1. Sun Tzu said: In the operations of war, where there are in the field a thousand swift chariots, as many heavy chariots, and a hundred thousand mail-clad soldiers, with provisions enough to carry them a thousand LI, the expenditure at home and at the front, including entertainment of guests, small items such as glue and paint, and sums spent on chariots and armor, will reach the total of a thousand ounces of silver per day. Such is the cost of raising an army of 100,000 men.
+
+2. When you engage in actual fighting, if victory is long in coming, then men's weapons will grow dull and their ardor will be damped. If you lay siege to a town, you will exhaust your strength.
+
+3. Again, if the campaign is protracted, the resources of the State will not be equal to the strain.
+
+4. Now, when your weapons are dulled, your ardor damped, your strength exhausted and your treasure spent, other chieftains will spring up to take advantage of your extremity. Then no man, however wise, will be able to avert the consequences that must ensue.
+
+5. Thus, though we have heard of stupid haste in war, cleverness has never been seen associated with long delays.
+
+6. There is no instance of a country having benefited from prolonged warfare.
+
+7. It is only one who is thoroughly acquainted with the evils of war can thoroughly understand the profitable way of carrying it on.
+
+8. The skillful soldier does not raise a second levy, neither are his supply-wagons loaded more than twice.
+
+9. Bring war material with you from home, but forage on the enemy. Thus the army will have food enough for its needs.
+
+10. Poverty of the State exchequer causes an army to be maintained by contributions from a distance. Contributing to maintain an army at a distance causes the people to be impoverished.
+11. 
