@@ -1358,3 +1358,29 @@ Enough small things by enough people coalesce into the next big thing.
 
 ---
 November 9, 2016
+##### The confusion about enough
+To watch people at work, it seems like we never have enough:
+- We need more social media likes
+- WE want more market share
+- We demand more quick wins
+
+And to see them at rest, it seems as though we never have enough:
+- Things to entertain us
+- Shallow friendships 
+- Conspicuous displays of success
+
+Which is why people talk about how they're always falling behind and feel like they don't have enough time.
+
+But...
+
+Lots of us walk around thinking we do have enough:
+- Education
+- Exposure to difficult topics
+- Situations where we need to change our mind
+- Silence
+- Deep relationships based on trust and commitment
+
+I'm wondering what happens if we flip them?
+
+---
+November 16, 2016

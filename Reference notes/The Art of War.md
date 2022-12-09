@@ -84,4 +84,21 @@ Author: Sun Tzu
 9. Bring war material with you from home, but forage on the enemy. Thus the army will have food enough for its needs.
 
 10. Poverty of the State exchequer causes an army to be maintained by contributions from a distance. Contributing to maintain an army at a distance causes the people to be impoverished.
-11. 
+
+11. On the other hand, the proximity of an army causes prices to go up; and high prices cause the people's substance to be drained away.
+
+12. When their substance is drained away, the peasantry will be afflicted by heavy exactions.
+
+13, 14. With this loss of substance and exhaustion of strength, the homes of the people will be stripped bare, and three-tenths of their income will be dissipated; while government expenses for broken chariots, worn-out horses, breast-plates and helmets, bows and arrows, spears and shields, protective mantles, drought oxen and heavy wagons, will amount to four-tenths of its total revenue.
+
+15. Hence a wise general makes a point of foraging on the enemy. One cartload of the enemy's provisions is equivalent to twenty of one's own, and likewise a single PICUL of his provender is equivalent to twenty from one's own store.
+
+16. Now in order to kill the enemy, our men must be roused to anger; that there may be advantage from defeating the enemy, they must have their rewards.
+
+17. Therefore in chariot fighting, when ten or more chariots have been taken, those should be rewarded who took the first. Our own flags should be substituted for those of the enemy, and the chariots mingled and used in conjunction with ours. The captured soldiers should be kindly treated and kept.
+
+18. This is called, using the conquered foe to augment one's own strength.
+
+19. In war, then, let your great object be victory, not lengthy campaigns.
+
+20. Thus it may be known that the leader of armies is the arbiter of the people's fate, the man on whom it depends whether the nation shall be in peace or in peril.
