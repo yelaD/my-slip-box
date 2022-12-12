@@ -102,3 +102,25 @@ Author: Sun Tzu
 19. In war, then, let your great object be victory, not lengthy campaigns.
 
 20. Thus it may be known that the leader of armies is the arbiter of the people's fate, the man on whom it depends whether the nation shall be in peace or in peril.
+
+### 3. Attack by Stratagem
+1. Sun Tzu said: In the practical art of war, the best thing of all is to take the enemy's country whole and intact; to shatter and destroy it is not so good. So, too, it is better to recapture an army entire than to destroy it, to capture a regiment, a detachment or a company entire than to destroy them.
+
+2. Hence to fight and conquer in all your battles is not supreme excellence; supreme excellence consists in breaking the enemy's resistance without fighting.
+
+3. Thus the highest form of generalship is to balk the enemy's plans; the next best is to prevent the junction of the enemy's forces; the next in order is to attack the enemy's army in the field; and the worst policy of all is to besiege walled cities.
+
+4. The rule is, not to besiege walled cities if it can possibly be avoided. The preparation of mantlets, moveable shelters, and various implements of war, will take up three whole months; and the piling up of mounds over against the wall will take three months more.
+
+5. The general, unable to control his irritation, will launch his men to the assault like swarming ants, with the result that one-third of his men are slain, while the town still remains untaken. Such are the disastrous effects of a siege.
+
+6. Therefore the skillful leader subdues the enemy's troops without any fighting; he captures their cities without laying siege to them; he overthrows their kingdom without lengthy operations in the field.
+
+7. With his forces intact he will dispute the mastery of the Empire, and thus, without losing a man, his triumph will be complete. This is the method of attacking by stratagem.
+
+8. It is the rule in war, if our forces are ten to the enemy's one, to surround him; if five to one, to attack him; if twice as numerous, to divide our army into two.
+
+9. If equally matched, we can offer battle; if slightly inferior in numbers, we can avoid the enemy; if quite unequal in every way, we can flee from him.
+
+10. Hence, though an obstinate fight may be made by a small force, in the end it must be captured by the larger force.
+

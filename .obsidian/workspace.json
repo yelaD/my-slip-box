@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Reference notes/The Art of War.md",
+                "file": "Reference notes/Seth's Blog.md",
                 "mode": "source",
                 "source": false
               }
@@ -78,7 +78,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Reference notes/The Art of War.md",
+                "file": "Reference notes/Seth's Blog.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -109,15 +109,15 @@
   },
   "active": "e46171248916a75a",
   "lastOpenFiles": [
+    "Reference notes/The Art of War.md",
+    "Inbox/Quotes.md",
+    "Templates/Map of Content.md",
+    "Templates/Book.md",
+    "Templates/Core Zettel idea.md",
+    "Templates/Video.md",
+    "Zettelkasten/Reasonable = tolerable.md",
     "Reference notes/Seth's Blog.md",
     "Reference notes/Seth's Freelance Course.md",
-    "Reference notes/The Art of War.md",
-    "Reference notes/The Complete Stories by Dorothy Parker.md",
-    "Reference notes/Meditations.md",
-    "Zettelkasten/Life, why you like this....md",
-    "Reference notes/How to Take Smart Notes.md",
-    "Reference notes/The Collected Poems of Sylvia Plath.md",
-    "Reference notes/Leaves of Grass.md",
-    "Reference notes/Building a Second Brain.md"
+    "Reference notes/The Complete Stories by Dorothy Parker.md"
   ]
 }
