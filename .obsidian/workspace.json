@@ -8,12 +8,12 @@
         "type": "tabs",
         "children": [
           {
-            "id": "e46171248916a75a",
+            "id": "a4daaf9889bc910d",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Reference notes/Seth's Blog.md",
+                "file": "Reference notes/The Art of War.md",
                 "mode": "source",
                 "source": false
               }
@@ -78,7 +78,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Reference notes/Seth's Blog.md",
+                "file": "Reference notes/The Art of War.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -107,17 +107,17 @@
     "width": 300,
     "collapsed": true
   },
-  "active": "e46171248916a75a",
+  "active": "a4daaf9889bc910d",
   "lastOpenFiles": [
-    "Reference notes/The Art of War.md",
+    "Reference notes/Seth's Blog.md",
+    "2023 Action Plan.md",
     "Inbox/Quotes.md",
+    "Reference notes/The Art of War.md",
     "Templates/Map of Content.md",
     "Templates/Book.md",
     "Templates/Core Zettel idea.md",
     "Templates/Video.md",
     "Zettelkasten/Reasonable = tolerable.md",
-    "Reference notes/Seth's Blog.md",
-    "Reference notes/Seth's Freelance Course.md",
-    "Reference notes/The Complete Stories by Dorothy Parker.md"
+    "Reference notes/Seth's Freelance Course.md"
   ]
 }

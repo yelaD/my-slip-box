@@ -1405,3 +1405,18 @@ Because it's our narrative that determines who we will become.
 
 ---
 November 17, 2016
+##### The best way to stand for something
+The best way to build a brand that matters, a story that spreads, an impact that we remember, is to understand a simple but painful trade-off:
+
+*If you want to stand for something.*
+
+*You can't stand for everything.*
+
+"Anyone can be our customer and we will get you what you want..." is almost impossible to pull off. So is, "we are the cheapest and the most convenient and the best."
+
+It didn't work for Sears, or for Chevrolet or for Radio Shack. It definitely doesn't work for the local freelancer, eager to do whatever is asked.
+
+Relentlessly trimming what's on offer, combined with a resolute willingness to say, "no," are two characteristics of great brands. And linchpins, too.
+
+---
+December 2, 2016
