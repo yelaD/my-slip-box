@@ -145,3 +145,24 @@ Author: Sun Tzu
 
 18. Hence the saying: If you know the enemy and know yourself, you need not fear the result of a hundred battles. If you know yourself but not the enemy, for every victory gained you will also suffer a defeat. If you know neither the enemy nor yourself, you will succumb in every battle.
 
+
+### 4. Tactical Dispositions
+1. Sun Tzu said: The good fighters of old put themselves beyond the possibility of defeat, and then waited for an opportunity of defeating the enemy.
+
+2. To secure ourselves against defeat lies in our own hands, but the opportunity of defeating the enemy is provided by the enemy himself.
+
+3. Thus the good fighter is able to secure himself against defeat, but cannot make certain of defeating the enemy.
+
+4. Hence the saying: One may KNOW how to conquer without being able to DO it.
+
+5. Security against defeat implies defensive tactics; ability to defeat an enemy means taking the offensive.
+
+6. Standing on the defensive indicates insufficient strength; attacking, a superabundance of strength.
+
+7. The general who is skilled in defense hides in the most secret recesses of the earth; he who is skilled in attack flashes forth from the topmost heights of heaven. Thus on the one hand we have ability to protect ourselves; on the other, a victory that is complete.
+
+8. To see victory only when it is within the ken of the common herd is not the acme of excellence.
+
+9. Neither is it the acme of excellence if you fight and conquer and the whole Empire says, "Well done!"
+
+10. To lift an autumn hair is no sigh of great strength; to see the sun and moon is no sigh of sharp sight; to hear the noise of thunder is no sign of a quick ear.
