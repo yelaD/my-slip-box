@@ -166,3 +166,23 @@ Author: Sun Tzu
 9. Neither is it the acme of excellence if you fight and conquer and the whole Empire says, "Well done!"
 
 10. To lift an autumn hair is no sigh of great strength; to see the sun and moon is no sigh of sharp sight; to hear the noise of thunder is no sign of a quick ear.
+
+11. What the ancients called a clever fighter is one who not only wins, but excels in winning with ease.
+
+12. Hence his victories bring him neither reputation for wisdom nor credit for courage.
+
+13. He wins his battles by making no mistakes. Making no mistakes is what establishes the certainty of victory, for it means conquering an enemy that is already defeated.
+
+14. Hence the skillful fighter puts himself into a position which makes defeat impossible, and does not miss the moment for defeating the enemy.
+
+15. Thus it is that in war the victorious strategist only seeks battle after the victory has been won, whereas he who is destined to defeat first fights and afterwards looks for victory.
+
+16. The consummate leader cultivates the moral law, and strictly adheres to method and discipline; thus it is in his power to control success.
+
+17. In respect of military method, we have, firstly, Measurement; secondly, Estimation of quantity; thirdly, Calculation; fourthly, Balancing of chances; fifthly, Victory.
+
+18. Measurement owes its existence to Earth; Estimation of quantity to Measurement; Calculation to Estimation of quantity; Balancing of chances to Calculation; And Victory to Balancing of chances.
+
+19. A victorious army opposed to a routed one, is as a pound's weight placed in the scale against a single grain.
+
+20. The onrush of a conquering force is like the bursting of pent-up waters into a chasm a thousand fathoms deep.
