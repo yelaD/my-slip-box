@@ -12,7 +12,7 @@
 💬 They are all things I can easily achieve by just ***showing up and being consistent.*** 
 
 ---
-# 2023 Action Plan
+# The Action Plan
 
 >[!todo] 4 Goals
 ## Q1
@@ -138,19 +138,7 @@
 ```
 
 ---
-
->[!example] 12 Celebrations
-
----
-
-
->[!check] 12 Celebrations
-
-
-
->[!success] 12 Celebrations
-
-
+# 
 
 >[!check] 12 Celebrations
 ## **📅** January
@@ -182,21 +170,256 @@
 **Celebration prerequisites**
 ##### **Business:**
 ```
-✅ Na optimize yung website
 ✅ Na document everything
 ✅ Nag send (1) proposal every day
 ✅ Nag close (1) USD 1,000 client for this quarter
 ```
 ###### **Personal:**
 ```
-✅ Meron na driver license
+✅ Meron na credit card
 ✅ Nag 20 7x7 solves every day
 ✅ 10 days of 10k steps
 ✅ Meron daily blog posting
-✅ Nag invest every month
+✅ Nag investing
 ```
 
 > [!success] Celebration:
-> **🎉Punta tayo Baguio guys!**
+> *Celebration activity to be decided…*
+
+---
+
+## **📅** March
+
+**Celebration prerequisites**
+##### **Business:**
+```
+✅ Na document everything
+✅ Nag send (1) proposal every day
+✅ Nag close (1) USD 1,000 client for this quarter
+```
+###### **Personal:**
+```
+✅ Nag 20 7x7 solves every day
+✅ 10 days of 10k steps
+✅ Meron daily blog posting
+✅ Nag investing
+```
+
+> [!success] Celebration:
+> *Celebration activity to be decided…*
+
+---
+
+## **📅** April
+
+**Celebration prerequisites**
+##### **Business:**
+```
+✅ Na document everything
+✅ Nag send (1) proposal every day
+✅ Nag close (1) USD 1,500 client for this quarter
+```
+###### **Personal:**
+```
+✅ Nag 20 7x7 solves every day
+✅ 10 days of 10k steps
+✅ Meron daily blog posting
+✅ Nag publish ng one edited video
+✅ Nag investing
+```
+
+> [!success] Celebration:
+> *Celebration activity to be decided…*
+
+---
+## **📅** May
+
+**Celebration prerequisites**
+##### **Business:**
+```
+✅ Na document everything
+✅ Nag send (1) proposal every day
+✅ Nag close (1) USD 1,500 client for this quarter
+```
+###### **Personal:**
+```
+✅ Nag apply for insurance
+✅ Nag 20 7x7 solves every day
+✅ 10 days of 10k steps
+✅ Meron daily blog posting
+✅ Nag publish ng one edited video
+✅ Nag investing
+```
+
+> [!success] Celebration:
+> *Celebration activity to be decided…*
+
+---
+## **📅** June
+
+**Celebration prerequisites**
+##### **Business:**
+```
+✅ Na document everything
+✅ Nag send (1) proposal every day
+✅ Nag close (1) USD 1,500 client for this quarter
+```
+###### **Personal:**
+```
+✅ Nag hanap ng isang room
+✅ Nag 20 7x7 solves every day
+✅ 10 days of 10k steps
+✅ Meron daily blog posting
+✅ Nag publish ng one edited video
+✅ Nag investing
+```
+
+> [!success] Celebration:
+> *Celebration activity to be decided…*
+
+---
+## **📅** July
+
+**Celebration prerequisites**
+##### **Business:**
+```
+✅ Na document everything
+✅ Nag send (1) proposal every day
+✅ Nag close (1) USD 2,000 client for this quarter
+```
+###### **Personal:**
+```
+✅ Nag hanap ng isang room
+✅ Nag 20 7x7 solves every day
+✅ 10 days of 10k steps
+✅ Meron daily blog posting
+✅ Nag publish ng one edited video
+✅ Nag investing
+```
+
+> [!success] Celebration:
+> *Celebration activity to be decided…*
+
+---
+## **📅** August
+
+**Celebration prerequisites**
+##### **Business:**
+```
+✅ Na document everything
+✅ Nag send (1) proposal every day
+✅ Nag close (1) USD 2,000 client for this quarter
+```
+###### **Personal:**
+```
+✅ Nag hanap ng isang room
+✅ Pumunta ng korea…
+✅ Nag 25 7x7 solves every day
+✅ 10 days of 10k steps
+✅ Meron daily blog posting
+✅ Nag publish ng one edited video every week
+✅ Nag investing
+```
+
+> [!success] Celebration:
+> 🎉 **Korea, bekenemen(?)**
+
+---
+## **📅** September
+
+**Celebration prerequisites**
+##### **Business:**
+```
+✅ Na document everything
+✅ Nag send (1) proposal every day
+✅ Nag close (1) USD 2,000 client for this quarter
+```
+###### **Personal:**
+```
+✅ Nag hanap ng isang room
+✅ Nag 25 7x7 solves every day
+✅ 10 days of 10k steps
+✅ Meron daily blog posting
+✅ Nag publish ng one edited video every week
+✅ Nag investing
+```
+
+> [!success] Celebration:
+> *Celebration activity to be decided…*
+
+---
+## **📅** October
+
+**Celebration prerequisites**
+##### **Business:**
+```
+✅ Na document everything
+✅ Gumawa ng SOPs
+✅ Nag hanap ng employee within this quarter
+✅ Nag send (1) proposal every day
+✅ Nag close (1) USD 2,000 client for this quarter
+```
+###### **Personal:**
+```
+✅ Nag hanap ng isang room
+✅ Nag 20 7x7 solves every day
+✅ 10 days of 10k steps
+✅ Meron daily blog posting
+✅ Nag publish ng one edited video every week
+✅ Nag investing
+```
+
+> [!success] Celebration:
+> *Celebration activity to be decided…*
+
+---
+## **📅** November
+
+**Celebration prerequisites**
+##### **Business:**
+```
+✅ Na document everything
+✅ Gumawa ng SOPs
+✅ Nag hanap ng employee within this quarter
+✅ Nag send (1) proposal every day
+✅ Nag close (1) USD 2,000 client for this quarter
+```
+###### **Personal:**
+```
+✅ Nag hanap ng isang room
+✅ Nag 20 7x7 solves every day
+✅ 10 days of 10k steps
+✅ Meron daily blog posting
+✅ Nag publish ng one edited video every week
+✅ Nag investing
+```
+
+> [!success] Celebration:
+> *Celebration activity to be decided…*
+
+---
+## **📅** December
+
+**Celebration prerequisites**
+##### **Business:**
+```
+✅ Na document everything
+✅ Gumawa ng SOPs
+✅ Nag hanap ng employee within this quarter
+✅ Nag send (1) proposal every day
+✅ Nag close (1) USD 2,000 client for this quarter
+```
+###### **Personal:**
+```
+✅ Nag hanap ng isang room
+✅ Nag 20 7x7 solves every day
+✅ 10 days of 10k steps
+✅ Meron daily blog posting
+✅ Nag publish ng one edited video every week
+✅ Nag investing
+```
+
+> [!success] Celebration:
+> *Celebration activity to be decided…*
 
 ---
