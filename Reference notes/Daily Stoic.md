@@ -7,6 +7,17 @@ Author: Ryan Holiday
 
 ---
 
+### January 02 - Education is Freedom
+```ad-quote
+title: Epictetus, *Discourses*, 2.121-23a
+collapse: open
+
+What is the pruit of these teachings? Only that most beautiful and proper harvest of the truly educated—tranquility, fearlessness, and freddom. We should not trust the masses who sayo nly the free can be educated, but rather the lovers of wisdom who say that only the educated are free. 
+```
+Why did you pick up this book? Why pick up any book? Not to seem smarter, not to pass time on the plane, not to hear what you want to hear—there are plenty of easier choices than reading.
+No, you picked up this book because you are learning how to live. Because you want to be freer, fear less, and achieve a state of peace. Education—reading and meditating on the wisdom of great minds—is not to be done for its own sake. It has a purpose.
+Remember that imperative on the days you start to feel distracted, when watching television or having a snack seems like a better use of your time than reading or studying philosophy. Knowledge—self-knowledge in particular—is freedom.
+
 ### April 27 - Turn It Inside Out
 ```ad-quote
 title: Marcus Aurelius, Meditations, 8.21

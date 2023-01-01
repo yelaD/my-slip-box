@@ -186,3 +186,24 @@ Author: Sun Tzu
 19. A victorious army opposed to a routed one, is as a pound's weight placed in the scale against a single grain.
 
 20. The onrush of a conquering force is like the bursting of pent-up waters into a chasm a thousand fathoms deep.
+
+### 5. Energy
+1. Sun Tzu said: The control of a large force is the same principle as the control of a few men: it is merely a question of dividing up their numbers.
+
+2. Fighting with a large army under your command is nowise different from fighting with a small one: it is merely a question instituting sighs and signals.
+
+3. To ensure that you whole host may withstand the brunt of the enemy's attack and remain unshaken—this is effected by maneuvers direct and indirect.
+
+4. That the impact of your army may be like a grindstone dashed against an egg—this is effected by the science of weak points and strong.
+
+5. In all fighting, the direct method may be used for joining battle, but indirect methods will be needed in order to secure victory.
+
+6. Indirect tactics, efficiently applied, are inexhaustible as Heaven and Earth, unending as the flow of rivers and streams; like the sun and moon, the end but to begin anew; like the four seasons, they pass away to return once more.
+
+7. There are not more than five musical notes, yet the combinations of these five give rise to more melodies that can ever be heard.
+
+8. There are not more than five primary colors (blue, yellow, red, white, and black), yet in combination they produce more hues than can ever be seen.
+
+9. There are not more than five cardinal tastes (sour, arcid, salt, sweet, bitter), yet combinations of them yield more flavors than can ever be tasted.
+
+10. In battle, there are not more than two methods of attack—the direct and indirect; yet these two in combination give rise to an endless series of maneuvers.

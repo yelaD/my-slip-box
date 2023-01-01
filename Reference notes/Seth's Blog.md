@@ -1473,3 +1473,17 @@ Everyone has an opinion, but no one has a guarantee.
 
 ---
 December 23, 2016
+##### The candy diet
+The best selling novel of 1961 was Allen Drury's *Advise and Consent.* Millions of people read this 690-page political novel. In 2016, the big sellers were coloring books.
+
+Fifteen years ago, cable channels like TLC (the "L" stood for Learning), Bravo and the History Channel (the "History" stood for History) promised to add texture and information to the blighted TV landscape. Now these networks run shows about marrying people based on how well they kiss.
+
+And of course, newspapers won Pulitzer prizes for telling us things we didn't want to hear. We've responded by not buying newspapers any more.
+
+The decline of thoughtful media has been discussed for a century. This is not new. What is new: A fundamental shift not just in the profit-seeking gatekeepers, but in the culture as a whole.
+
+"Everything should be made as simple as possible, *but no simpler.*"*
+
+\[\*Ironically, this isn't what Einstein actually said. It was this, "It can scarcely be denied that the supreme goal of all theory is to make the irreducible basic elements as simple and as few as possible without having to surrender the adequate representation of a single datum of experience." Alas, I've been seduced into believing that the shorter one now works better.\]
+
+
