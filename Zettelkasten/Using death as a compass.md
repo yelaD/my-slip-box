@@ -17,3 +17,4 @@ Why? Because I say so, also because, people who are way smarter and wiser than I
 ---
 # References
 1. Practical Stoicism Pod
+2. [A blog post written about this by me...](https://www.dalepalmares.com/using-your-own-mortality-as-a-guide/)
