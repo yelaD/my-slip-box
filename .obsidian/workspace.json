@@ -8,12 +8,12 @@
         "type": "tabs",
         "children": [
           {
-            "id": "eaf0588e143cee36",
+            "id": "fffe23d12c5c61a9",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Reference notes/The Art of War.md",
+                "file": "Zettelkasten/Using death as a compass.md",
                 "mode": "source",
                 "source": false
               }
@@ -78,7 +78,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Reference notes/The Art of War.md",
+                "file": "Zettelkasten/Using death as a compass.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -117,17 +117,17 @@
       "markdown-importer:Open format converter": false
     }
   },
-  "active": "eaf0588e143cee36",
+  "active": "fffe23d12c5c61a9",
   "lastOpenFiles": [
+    "Zettelkasten/Try not to be a coward.md",
+    "Zettelkasten/Using death as a compass.md",
+    "2023 Action Plan.md",
     "Reference notes/Seth's Blog.md",
+    "Reference notes/The Art of War.md",
     "Reference notes/Daily Stoic.md",
     "Reference notes/Principles of Marketing.md",
-    "2023 Action Plan.md",
     "Reference notes/Seth's Freelance Course.md",
-    "Reference notes/The Art of War.md",
     "Reference notes/The Complete Stories by Dorothy Parker.md",
-    "Zettelkasten/Try not to be a coward.md",
-    "Inbox/Quotes.md",
-    "Zettelkasten/One type of person you should strive to be.md"
+    "Inbox/Quotes.md"
   ]
 }

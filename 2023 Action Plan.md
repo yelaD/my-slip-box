@@ -7,6 +7,7 @@
 >👉 Become better at telling stories
 >👉 Be capable of living by myself
 >👉 Get national record for 7x7
+>👉 Build PC
 
 > [!question] What do these things have in common?
 💬 They are all things I can easily achieve by just ***showing up and being consistent.*** 
@@ -141,7 +142,7 @@
 # 
 
 >[!check] 12 Celebrations
-## **📅** January
+## January
 
 **Celebration prerequisites**
 ##### **Business:**
@@ -157,7 +158,7 @@
 ✅ Nag 20 7x7 solves every day
 ✅ 10 days of 10k steps
 ✅ Meron daily blog posting
-✅ Nag invest every month
+✅ Nag invest this month
 ```
 
 > [!success] Celebration:
@@ -165,7 +166,7 @@
 
 ---
 
-## **📅** February
+## February
 
 **Celebration prerequisites**
 ##### **Business:**
@@ -188,7 +189,7 @@
 
 ---
 
-## **📅** March
+## March
 
 **Celebration prerequisites**
 ##### **Business:**
@@ -210,7 +211,7 @@
 
 ---
 
-## **📅** April
+## April
 
 **Celebration prerequisites**
 ##### **Business:**
@@ -232,7 +233,7 @@
 > *Celebration activity to be decided…*
 
 ---
-## **📅** May
+## May
 
 **Celebration prerequisites**
 ##### **Business:**
@@ -255,7 +256,7 @@
 > *Celebration activity to be decided…*
 
 ---
-## **📅** June
+## June
 
 **Celebration prerequisites**
 ##### **Business:**
@@ -278,7 +279,7 @@
 > *Celebration activity to be decided…*
 
 ---
-## **📅** July
+## July
 
 **Celebration prerequisites**
 ##### **Business:**
@@ -301,7 +302,7 @@
 > *Celebration activity to be decided…*
 
 ---
-## **📅** August
+## August
 
 **Celebration prerequisites**
 ##### **Business:**
@@ -325,7 +326,7 @@
 > 🎉 **Korea, bekenemen(?)**
 
 ---
-## **📅** September
+## September
 
 **Celebration prerequisites**
 ##### **Business:**
@@ -348,7 +349,7 @@
 > *Celebration activity to be decided…*
 
 ---
-## **📅** October
+## October
 
 **Celebration prerequisites**
 ##### **Business:**
@@ -373,7 +374,7 @@
 > *Celebration activity to be decided…*
 
 ---
-## **📅** November
+## November
 
 **Celebration prerequisites**
 ##### **Business:**
@@ -398,7 +399,7 @@
 > *Celebration activity to be decided…*
 
 ---
-## **📅** December
+## December
 
 **Celebration prerequisites**
 ##### **Business:**
