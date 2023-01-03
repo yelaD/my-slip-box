@@ -8,16 +8,29 @@ Author: Ryan Holiday
 ---
 
 ### January 02 - Education is Freedom
+
 ```ad-quote
 title: Epictetus, *Discourses*, 2.121-23a
 collapse: open
 
 What is the pruit of these teachings? Only that most beautiful and proper harvest of the truly educated—tranquility, fearlessness, and freddom. We should not trust the masses who sayo nly the free can be educated, but rather the lovers of wisdom who say that only the educated are free. 
 ```
+
 Why did you pick up this book? Why pick up any book? Not to seem smarter, not to pass time on the plane, not to hear what you want to hear—there are plenty of easier choices than reading.
 No, you picked up this book because you are learning how to live. Because you want to be freer, fear less, and achieve a state of peace. Education—reading and meditating on the wisdom of great minds—is not to be done for its own sake. It has a purpose.
 Remember that imperative on the days you start to feel distracted, when watching television or having a snack seems like a better use of your time than reading or studying philosophy. Knowledge—self-knowledge in particular—is freedom.
 
+### January 03 - Be Ruthless To The Things That Don't Matter
+
+```ad-quote
+title: Seneca, *On the Brevity of Life*, 3.3b
+collapse: open
+
+How many have laid waste to your life when you weren't aware of what you were losing, how much was wasted in pointless grief, foolish joy, greedy desire, adn social amusements—how litte of your own was left to you. You will realize you are dying before your time!
+```
+
+One of the hardest things to do in life is to say "No." To invitations, to requests, to obligations, to the stuff that everyone else is doing. Even harder is saying no to certain time-consuming emotions: anger, excitement, distraction, obsession, lust. None of these impulses feels like a big deal by itself, but run amok, they become a commitment like anything else.
+If you're not careful, these are precisely the impositions that will overwhelm and consume your life. Do you ever wonder how you can get some of your time back, how you can fell less busy? Start by learning the power of "No!"—as in "No, thank you," and "No, I'm not going to get caught up in that," and "No, I just can't right now." It may hurt some feelings. It may turn people off. It may take some hard work. But the more you say no to the things that don't matter, the more you can say yes to the things that do. This will let you live and enjoy your life—the life *you* want.
 ### April 27 - Turn It Inside Out
 ```ad-quote
 title: Marcus Aurelius, Meditations, 8.21

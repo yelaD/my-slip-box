@@ -4,16 +4,16 @@
     "type": "split",
     "children": [
       {
-        "id": "f6ff2a1ca16a8355",
+        "id": "1c1ef9fb18e68168",
         "type": "tabs",
         "children": [
           {
-            "id": "fffe23d12c5c61a9",
+            "id": "350650d3d497d3e9",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Zettelkasten/Using death as a compass.md",
+                "file": "Zettelkasten/My definition of intuitive.md",
                 "mode": "source",
                 "source": false
               }
@@ -78,7 +78,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Zettelkasten/Using death as a compass.md",
+                "file": "Zettelkasten/My definition of intuitive.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -117,17 +117,17 @@
       "markdown-importer:Open format converter": false
     }
   },
-  "active": "fffe23d12c5c61a9",
+  "active": "350650d3d497d3e9",
   "lastOpenFiles": [
-    "Zettelkasten/Try not to be a coward.md",
-    "Zettelkasten/Using death as a compass.md",
-    "2023 Action Plan.md",
+    "Reference notes/Daily Stoic.md",
+    "Inbox/Quotes.md",
+    "Zettelkasten/My definition of intuitive.md",
+    "Zettelkasten/Untitled.md",
+    "Zettelkasten/Reasonable = tolerable.md",
     "Reference notes/Seth's Blog.md",
     "Reference notes/The Art of War.md",
-    "Reference notes/Daily Stoic.md",
-    "Reference notes/Principles of Marketing.md",
-    "Reference notes/Seth's Freelance Course.md",
-    "Reference notes/The Complete Stories by Dorothy Parker.md",
-    "Inbox/Quotes.md"
+    "Zettelkasten/Using death as a compass.md",
+    "Zettelkasten/Try not to be a coward.md",
+    "2023 Action Plan.md"
   ]
 }

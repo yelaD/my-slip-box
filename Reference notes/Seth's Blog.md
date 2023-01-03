@@ -1516,3 +1516,44 @@ Turn the ratchet. We can lead our way back to curiosity, inquiry and discovery i
 
 ---
 January 4, 2017
+##### Entitlement is optional
+It's not forced on us, it's something we choose.
+
+And we rarely benefit from that choice.
+
+That emergency surgery, the one that saved your life, when the ruptured appendix was removed—the doctor left a scar.
+
+We can choose to be grateful for our next breath.
+
+Or we can find a way to be enraged, to point out that given how much it costs and how much training the had, that scar really ought to be a lot smaller. And on top of that, he wasn't very nice. We're entitled to a nice doctor!
+
+Or we can choose to be grateful.
+
+Marketers have spent trillions of dollars persuading us that we can have it all, that we deserve it, and that right around the corner is something even better.
+
+Politicians have told us that they'll handle everything, that our pain is real and that an even better world is imminent.
+
+And we believe it. we buy into our privilege as well as the expectations that our privilege entitles us to even more. It's not based on status or reality. It's a cultural choice.
+
+And you're entitled to your entitlement if you want it.
+
+But why would you?
+
+Entitlement gets us nothing but heartache. It blinds us to what's possible. It insulates us from the magic of gratitude. And most of all, it lets us off the hook, pushing us way from taking responsibility (and action) and toward apportioning blame and anger instead.
+
+Gratitude, on the other hand, is just as valid a choice. Except that gratitude makes us open to possibility. It brings us closer to others. And it makes us happier.
+
+There's a simple hack at work here: *We're not grateful because we're happy. We're happy because we're grateful.*
+
+Everything could be better.
+
+Not because we deserve it (we don't, no really).
+
+But because if we work at it, invest in it and connect with others around it, we can make it better. It's on us.
+
+It's difficult work, counter-instinctual work that never ends.
+
+But we keep trying. Because it's worth it.
+
+---
+January 10, 2017
