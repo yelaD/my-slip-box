@@ -31,6 +31,24 @@ How many have laid waste to your life when you weren't aware of what you were lo
 
 One of the hardest things to do in life is to say "No." To invitations, to requests, to obligations, to the stuff that everyone else is doing. Even harder is saying no to certain time-consuming emotions: anger, excitement, distraction, obsession, lust. None of these impulses feels like a big deal by itself, but run amok, they become a commitment like anything else.
 If you're not careful, these are precisely the impositions that will overwhelm and consume your life. Do you ever wonder how you can get some of your time back, how you can fell less busy? Start by learning the power of "No!"—as in "No, thank you," and "No, I'm not going to get caught up in that," and "No, I just can't right now." It may hurt some feelings. It may turn people off. It may take some hard work. But the more you say no to the things that don't matter, the more you can say yes to the things that do. This will let you live and enjoy your life—the life *you* want.
+### January 03 - Be Ruthless To The Things That Don't Matter
+
+```ad-quote
+title: Marcus Aurelius, Meditations, 9.6
+collapse: open
+
+All you need are these: certainty of judgement in the present moment; action for the commod good in the present moment; and an attitude of gratitude in the present moment for anything that comes your way.
+```
+
+Perception, Action. Will. Those are the three overlapping but critical disciplines of Stoicism. There's more to the philosophy certainly—and we could spend all day talking about the unique beliefs of the various Stoics: "This is what Heraclitus thought..." "Zeno is from Citium, a city in Cyprus, and he believed..." But would such facts really help you day to day? What clarity does trivia provide?
+Instead, the following little reminder sums up the three most essential parts of Stoic philosophy worth carrying with you every day, into every decision:
+
+Control your perceptions.
+Direct your actions properly.
+Willingly accept what's outside your control.
+
+That's all we need to do.
+
 ### April 27 - Turn It Inside Out
 ```ad-quote
 title: Marcus Aurelius, Meditations, 8.21
