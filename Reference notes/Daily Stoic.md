@@ -31,7 +31,7 @@ How many have laid waste to your life when you weren't aware of what you were lo
 
 One of the hardest things to do in life is to say "No." To invitations, to requests, to obligations, to the stuff that everyone else is doing. Even harder is saying no to certain time-consuming emotions: anger, excitement, distraction, obsession, lust. None of these impulses feels like a big deal by itself, but run amok, they become a commitment like anything else.
 If you're not careful, these are precisely the impositions that will overwhelm and consume your life. Do you ever wonder how you can get some of your time back, how you can fell less busy? Start by learning the power of "No!"—as in "No, thank you," and "No, I'm not going to get caught up in that," and "No, I just can't right now." It may hurt some feelings. It may turn people off. It may take some hard work. But the more you say no to the things that don't matter, the more you can say yes to the things that do. This will let you live and enjoy your life—the life *you* want.
-### January 03 - Be Ruthless To The Things That Don't Matter
+### January 03 - The Big Three
 
 ```ad-quote
 title: Marcus Aurelius, Meditations, 9.6
@@ -48,6 +48,19 @@ Direct your actions properly.
 Willingly accept what's outside your control.
 
 That's all we need to do.
+
+### January 03 - The Big Three
+
+```ad-quote
+title: Seneca, On Tranquility of Mind, 12.5
+collapse: open
+
+Let all your efforts be directed to something, let it keep that end it view. It's no  activity that disturbs people, but false conceptions of things that drive them mad.
+```
+
+Law 29 of *The 48 Laws of Power* is: Plan All The Way To The End. Robert Greene writes, "By planning to the end you will not be overwhelmed by circumstances and you will know when to stop. Gently guide fortune and help determine the future by thinking far ahead." The second habit in *The 7 Habits of Highly Effective People* is: begin with an end in mind.
+Having an end in mind is no guarantee that you'll reach it—no Stoic would tolerate that assumption—but *not* having an end in mind is a guarantee you won't. To the Stoics,  oiêsis (false conceptions) are responsible not just for disturbances in the soul but for chaotic and dysfunctional lives and operations. When your efforts are not directed at a cause or a purpose, how will you know what to do day in and day out? How will you know what to say no to and what to say yes to? How will know when you've had enough, when you've reached your goal, when you've gotten off track, if you've never defined what those things are?
+The answer is that you cannot. And so you are driven into failure—or worse, into madness by the oblivion of directionlessness.
 
 ### April 27 - Turn It Inside Out
 ```ad-quote
