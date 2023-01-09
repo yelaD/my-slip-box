@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Reference notes/Seth's Blog.md",
+                "file": "Reference notes/The Art of War.md",
                 "mode": "source",
                 "source": false
               }
@@ -92,7 +92,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Reference notes/Seth's Blog.md",
+                "file": "Reference notes/The Art of War.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -133,8 +133,8 @@
   },
   "active": "a915272f467011ec",
   "lastOpenFiles": [
-    "2023 Action Plan.md",
     "Reference notes/Seth's Blog.md",
+    "2023 Action Plan.md",
     "Reference notes/The Art of War.md",
     "Reference notes/Daily Stoic.md",
     "Zettelkasten/Using death as a compass.md",

@@ -294,3 +294,11 @@ Author: Sun Tzu
 29. Military tactics are like unto water; for water in its natural course runs away from high places and hastens downwards.
 
 30. So in war, the way is to avoid what is strong and to strike at what is weak.
+
+31. Water shapes its course according to the nature of the ground over which it flows; the soldier works out his victory in relation to the foe whom he is facing.
+
+32. Therefore, just as water retains no constant shape, so in warfare there are no constant conditions.
+
+33. He who can modify his tactics in relation to his opponent and thereby succeed in winning, may be called a heaven-born captain.
+
+34. The five elements (water, fire, wood, metal, earth) are not always equally predominant; the four seasons make way for each other in turn. There are short days and long; the moon has its periods of waning and waxing.

@@ -1631,4 +1631,21 @@ It's your destiny and you should own it.
 Freelancers of all kinds need to be in a hurry. Not to hurry to give in to one-sided deals and lousy clients. Instead, we need to be in a hurry to share our bravest work, in a hurry to lean into the opportunity, in a hurry to make work that people would miss if it were gone.
 
 ---
-February 7, 2017
+February 7, 2017 
+##### Maybe your customer isn't trying to save money
+Perhaps she wants to be heard instead.
+
+Or find something better, or unique.
+
+Or perhaps customer service, flexibility and speed are more important.
+
+It might be that the way you treat your employees, or the side effects you create count for more than the price.
+
+The interactions in the moment might be a higher priority.
+
+Or it could even be the sense of fairplay and respect you bring (or don't bring) to the transaction.
+
+Price is the last refuge for the businessperson without the imagination, heart and soul to dig a bit deeper.
+
+---
+February 14, 2017

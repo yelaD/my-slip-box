@@ -154,7 +154,7 @@
 ```
 ###### **Personal:**
 ```
-✅ Meron na driver license
+✅ Meron na driver license before the quarter ends
 ✅ Nag 20 7x7 solves every day
 ✅ 10 days of 10k steps
 ✅ Meron daily blog posting
