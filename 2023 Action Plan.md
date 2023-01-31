@@ -142,7 +142,7 @@
 # 
 
 >[!check] 12 Celebrations
-## January
+## ✅ January
 
 **Celebration prerequisites**
 ##### **Business:**

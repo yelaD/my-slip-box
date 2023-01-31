@@ -1649,3 +1649,44 @@ Price is the last refuge for the businessperson without the imagination, heart a
 
 ---
 February 14, 2017
+##### The opposite of "more"
+It's not "less".
+
+If we care enough, the opposite of more is better.
+
+---
+February 19, 2017
+##### Fear, failure and shame, oh my
+Fear runs deep. Fear used to keep our ancestors alive. Fear keeps you from taunting a saber tooth tiger.
+
+The thing is, most of us don't have to deal with tigers any longer. But the fear still runs deep.
+
+We still feel the same feelings when we face possible failure, but now those feelings revolve around shame. Losing a videogame in private is fine, but asking a stupid question in a meeting is not.
+
+Shame is the dream killer, because shame (or the possibility of shame) amplifies our fear of fear, keeps us from contributing and short circuits our willingness to explore.
+
+As soon as we give it a name, though, as soon as we call it out, we can begin to move forward. Fear of shame unspoken is fear of shame amplified.
+
+Be afraid of significant failure if you can quantify the down sides. But fear of shame is a waste and a trap.
+
+---
+March 18, 2017
+##### Three simple and difficult steps
+*Get smarter. Hurry.*
+
+Learn something new and difficult and valuable. Learn it today and continue learning it tomorrow.
+
+*Solve interesting problems.*
+
+Ignaz Semmelweis saw the same problem that others saw. But he took responsibility and solved it
+
+*Care. More.*
+
+This takes guts because it means you'll have to do something.
+
+If you can invest in these three assets, what happens to your leverage? Your value? Your choices?
+
+There are people who can cut corners better than you, work more hours than you and certainly work cheaper than you. But what would happen if you became the person who was smarter, better at solving problems and cared the most?
+
+---
+March 20, 2017
