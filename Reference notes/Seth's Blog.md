@@ -1690,3 +1690,14 @@ There are people who can cut corners better than you, work more hours than you a
 
 ---
 March 20, 2017
+
+##### Like riding a bike
+People talk about bike riding when they want to remind us that some things, once learned, are not forgotten.
+
+What they don't mention is *how* we learned. No one learns to ride a bike from a book, or even a video.
+
+You learn by doing it.
+
+Actually, by *not* doing it. You learn by doing it wrong, by falling off, by getting back on, by doing it again.
+
+PS this approach works for lots of things, not just bikes. Most things, in fact.

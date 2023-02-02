@@ -362,4 +362,19 @@ Author: Sun Tzu
 
 29. A clever general, therefore, avoids an army when its spirit is keen, but attacks it when it is sluggish and inclined to return. This is the art of studying moods.
 
-30. Disciplined and calm, to await the appearance of disorder and hubbub amongst the enemy—this is the art of retaining self-possesion.
+30. Disciplined and calm, to await the appearance of disorder and hubbub amongst the enemy—this is the art of retaining self-possession.
+
+31. To be near the goal while the enemy is still far from it, to wait at ease while the enemy is toiling and struggling, to be well-fed while the enemy is famished—this is the art of husbanding one's strength.
+
+32. To refrain from intercepting an enemy whose banners are in perfect order, to refrain from attacking an army drawn up in calm and confident array; this is the art of studying circumstances.
+
+33. It is a military axiom not to advance uphill against the enemy, nor to oppose him when he comes downhill.
+
+34. Do not pursue an enemy who simulates flight; do not attack soldiers whose temper is keen.
+
+35. Do not swallow bait offered by the enemy. Do not interfere with an army that is returning home.
+
+36. When you surround an army, leave an outlet free. Do not press a desperate foe too hard.
+
+37. Such is the art of warfare.
+
