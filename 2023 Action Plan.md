@@ -174,6 +174,7 @@
 ✅ Na document everything
 ✅ Nag send (1) proposal every day
 ✅ Nag close (1) USD 1,000 client for this quarter
+✅ Finished Udemy Web dev course
 ```
 ###### **Personal:**
 ```
