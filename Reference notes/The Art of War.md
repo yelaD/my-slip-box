@@ -412,3 +412,44 @@ Author: Sun Tzu
 13. There are the five besetting sins of a general, ruinous to the conduct of war.
 
 14. When an army is overthrown and its leader slain, the cause will surely be found among these five dangerous faults. let them be a subject of meditation.
+
+### 9. The Army on the March
+1. Sun Tzu said: We come now to the question of encamping the army, and observing signs of the enemy. Pass quickly over mountains, and keep in the neighborhood of valleys.
+
+2. Camp in high places, facing the sun. Do not climb heights in order to fight. So much for mountain warfare.
+
+3. After crossing a river, you should get far away from it.
+
+4. When an invading force crosses a river in its onward march, do not advance to meet it in mid-stream. It will be best to let half the army get across, and then deliver your attack.
+
+5. If you are anxious to fight, you should not go to meet the invader near a river which he has to cross.
+
+6. Moor your craft higher up than the enemy, and facing the sun. Do not move upstream to meet the enemy. So much for river warfare.
+
+7. In crossing salt marshes, your sole concern should be to get over them quickly, without any delay.
+
+8. If forced to fight in a salt marsh, you should have water and grass near you, and get your back to clump of trees. So much for operations in salt marshes.
+
+9. In dry, level country, take up an easily accessible position with rising ground to your right and on your rear, so that the danger may be in front, and safety lie behind. So much for campaigning in flat country.
+
+10. These are the four useful branches of military knowledge which enabled the Yellow Emperor to vanquish four several sovereigns.
+
+11. All armies prefer high ground to low and sunny places to dark.
+
+12. If you are careful of your men, and camp on hard ground, the army will be free from disease of every kind, and this will spell victory.
+
+13. When you come to a hill or a bank, occupy the sunny side, with the slope on your right rear. Thus you will at once act for the benefit of your soldiers and utilize the natural advantages of the ground.
+
+14. When, in consequence of heavy rains up-country, a river which you wish to ford is swollen and flecked with foam, you must wait until it subsides.
+
+15. Country in which there are precipitous cliffs with torrents running between, deep natural hollows, confined spaces, tangled thickets, quagmires and crevasses, should be left with all possible speed and not approached.
+
+16. While we keep away from such places, we should get the enemy to approach them; while we face them, we should let the enemy have them on his rear.
+
+17. If in the neighborhood of you camp there should be any hilly country, ponds surrounded by aquatic grass, hollow basins filled with reeds, or woods with thick undergrowth, they must be carefully routed out and searched; for these are places where men in ambush or insidious spies are likely to be lurking.
+
+18. When the enemy is close at hand and remains quiet, he is relying on the natural strength of his position.
+
+19. When he keeps aloof and tries to provoke a battle, he is anxious for the other side to advance.
+
+20. If his place of encampment is easy of access, he is tending a bait.
