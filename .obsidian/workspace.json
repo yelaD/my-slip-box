@@ -4,11 +4,11 @@
     "type": "split",
     "children": [
       {
-        "id": "1c1ef9fb18e68168",
+        "id": "d79d57ecd3771dfa",
         "type": "tabs",
         "children": [
           {
-            "id": "a915272f467011ec",
+            "id": "c4d1bb214bf425ee",
             "type": "leaf",
             "state": {
               "type": "markdown",
@@ -18,23 +18,8 @@
                 "source": false
               }
             }
-          },
-          {
-            "id": "e03b0fd274ba4023",
-            "type": "leaf",
-            "pinned": true,
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "2023 Action Plan.md",
-                "mode": "source",
-                "source": false
-              },
-              "pinned": true
-            }
           }
-        ],
-        "stacked": true
+        ]
       }
     ],
     "direction": "vertical"
@@ -53,7 +38,7 @@
             "state": {
               "type": "file-explorer",
               "state": {
-                "sortOrder": "byCreatedTimeReverse"
+                "sortOrder": "byCreatedTime"
               }
             }
           },
@@ -76,7 +61,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 200
+    "width": 300
   },
   "right": {
     "id": "2c1a4b6c86827231",
@@ -131,17 +116,18 @@
       "markdown-importer:Open format converter": false
     }
   },
-  "active": "a915272f467011ec",
+  "active": "c4d1bb214bf425ee",
   "lastOpenFiles": [
-    "Reference notes/The Art of War.md",
-    "Reference notes/Seth's Blog.md",
     "2023 Action Plan.md",
-    "Reference notes/Daily Stoic.md",
-    "Zettelkasten/Using death as a compass.md",
-    "Zettelkasten/Edit your stuff pls.md",
-    "Zettelkasten/Untitled.md",
-    "Reference notes/The Richest Man in Babylon.md",
-    "Zettelkasten/My definition of intuitive.md",
-    "Inbox/Quotes.md"
+    "Reference notes/Seth's Blog.md",
+    "Reference notes/Meditations.md",
+    "Reference notes/How to Take Smart Notes.md",
+    "Files/the circles of marketing.png",
+    "Zettelkasten/The price of wise advice.md",
+    "Zettelkasten/What wealth is.md",
+    "Zettelkasten/Something you should realize early in life.md",
+    "Zettelkasten/In regard to becoming the best.md",
+    "Zettelkasten/True progress.md",
+    "Zettelkasten/The use of knowledge.md"
   ]
 }
