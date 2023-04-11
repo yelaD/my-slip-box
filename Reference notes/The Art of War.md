@@ -453,3 +453,25 @@ Author: Sun Tzu
 19. When he keeps aloof and tries to provoke a battle, he is anxious for the other side to advance.
 
 20. If his place of encampment is easy of access, he is tending a bait.
+
+21. Movement amongst the trees of a forest shows that the enemy is advancing. The appearance of a number of screens in the midst of thick grass means that the enemy wants to make us suspicious.
+
+22. The rising of birds in their flight is the sign of an ambuscade. Startled beasts indicate that a sudden attack is coming.
+
+23. When there is dust rising in a high column, it is the sign of chariots advancing; when the dust is low, but spread over a wide area, it betokens the approach of infantry. When it branches out in different directions, it shows that parties have been sent to collect firewood. A few clouds of dust moving to and fro signify that the army is encamping.
+
+24. Humble words and increased preparations are signs that the enemy is about to advance. Violent language and driving forward as if to the attack are signs that he will retreat.
+
+25. When the light chariots come out first and take up a position on the wings, it is a sign that the enemy is forming for battle.
+
+26. Peace proposals unaccompanied by a sworn covenant indicate a plot.
+
+27. When there is much running about and the soldiers fall into rank, it means that the critical moment has come.
+
+28. When some are seen advancing and some retreating, it is a lure.
+
+29. When the soldiers stand leaning on their spears, they are faint from want of want.
+
+30. If those who are sent to draw water begin by drinking themselves, the army is suffering from thirst.
+
+

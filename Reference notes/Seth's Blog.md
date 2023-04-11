@@ -1790,3 +1790,19 @@ We can change the stories we tell ourselves.
 
 ---
 May 4, 2017
+
+##### What Henry Ford understood about wages
+Every time Ford increased the productivity of car production (in one three-year period, he lowered labor costs by 66% per car), he also raised wages.
+
+Not merely because it's the right thing to do.
+
+He did it because well-paid workers had more to spend on. On houses, on clothes, and of course, on cars.
+
+There's a positive ratchet here.
+
+You can't shrink your way to greatness.
+
+When you enable your workers (and your customers) to do more, connect more, produce more and get paid more, you create a positive system. The goal isn't to clear the table, the goal is to set the table.
+
+---
+May 17, 2017
