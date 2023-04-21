@@ -474,4 +474,35 @@ Author: Sun Tzu
 
 30. If those who are sent to draw water begin by drinking themselves, the army is suffering from thirst.
 
+31. If the enemy sees an advantage to be gained and makes no effort to secure it, the soldiers are exhausted.
+
+32. If birds gather on any spot, it is unoccupied. Clamor by night betokens nervousness.
+
+33. If there is disturbance in the camp, the general's authority is weak. If the banners and flags are shifted about, sedition is afoot. If the officers are angry, it means that the men are weary.
+
+34. When an army feeds it horses with grain and kills its cattle for food, and when the men do not hang their cooking pots over the campfires, showing that they will not return to their tents, you make know that they are determined to fight to the death.
+
+35. The sight of men whispering together in small knots or speaking in subdued tones points to disaffection amongst the rank and file.
+
+36. Too frequent rewards signify that the enemy is at the end of his resources; too many punishments betray a condition of dire distress.
+
+37. To begin by bluster, but afterwards to take fright at the enemy's numbers, shows a supreme lack of intelligence.
+
+38. When envoys are sent with compliments in their mouths, it is a sign that the enemy wishes for a truce.
+
+39. If the enemy's troops march up angrily and remain facing ours for a long time without either joining battle  or taking themselves off again, the situation is one that demands great vigilance and circumspection.
+
+40. If our troops are no more in number than the enemy, that is amply sufficient; it only means that no direct attack can be made. What we can do is simply to concentrate all our available strength, keep a close watch on the enemy, and obtain reinforcements.
+
+41. He who exercises no fore thought but makes light of his opponents is sure to be captured by them.
+
+42. If soldiers are punished before they have grown attached to you, they will not prove submissive; and, unless, submissive, then will be practically useless. If, when the soldiers have become attached to you, punishments are not enforced, they will still be useless.
+
+43. Therefore soldiers must be treated in the first instance with humanity, but kept under control by means of iron discipline. This is a certain road to victory.
+
+44. If in training soldiers commands are habitually enforced, the army will be well-disciplined; if not, its discipline will be bad.
+
+45. If a general shows confidence in his men but always insists on his orders being obeyed, the gain will be mutual.
+
+
 
