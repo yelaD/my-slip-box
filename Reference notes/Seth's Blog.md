@@ -1823,3 +1823,34 @@ Almost no one gets hired to eat a slice of chocolate cake.
 
 ---
 May 18, 2017
+##### Choosing your fuel
+The work is difficult. Over coming obstacles, facing rejection, exploring the unknown—many of us need a narrative to fuel our forward motion, something to keep us insisting on the next cycle, on better results, on doing work that matters even more.
+
+The fuel you choose, though, determines how you will spend your days. You will spend far more time marinating in your fuel than you will actually doing breakthrough work. Richard Feynman was famously motivated by the joy of figuring things out. His scientific journey (which earned him a Nobel Prize) also provided him with truly wonderful days.
+
+Here is a partial list, in alphabetical order, of narratives light and dark that can serve as fuel to push us to do work that others might walk away from:
+
+- Avoidance of shame (do this work or you'll be seen as a fraud/loser/outcast)
+- Becoming a better version of yourself
+- Big dreams (because you can see it/feel it/taste it)
+- Catastrophe (or the world as we know it will end)
+- Competition (someone is gaining on you)
+- Compliance (the boss/contract says I have to, and even better, there's a deadline)
+- Connection (because others will join in)
+- Creative itch (the voice inside of you wants to be expressed)
+- Dissatisfaction (because it's not good enough as it is)
+- Engineer (because there's a problem to be solved)
+- Fame (imagining life is better on the other side)
+- Generosity (because it's a chance to contribute)
+- It's a living (pay the writer)
+- Peer pressure (the reunion is coming up)
+- Possibility (because we can, and it'll be neat to see how it works in the world)
+- Professionalism (because it's what we do)
+- Revenge (you'll show the naysayers)
+- Selection (to get in, win the prize, be chosen)
+- Unhappiness (because the only glimmer of happiness comes from the next win, after all, we're not good enough as is)
+
+They all work. Some of them leave you wrecked, some create an environment of possibility and connection and joy. Up to you.
+
+---
+May 22, 2017

@@ -506,3 +506,30 @@ Author: Sun Tzu
 
 
 
+
+### 10. Terrain
+1. Sun Tzu said: We may distinguish six kinds of terrain, to wit:
+	1. Accessible ground;
+	2. entangling ground;
+	3. temporizing ground;
+	4. narrow passes;
+	5. precipitous heights;
+	6. positions at great distance from the enemy.
+
+2. Ground which can be freely traversed by both sides is called ACCESSIBLE.
+
+3. With regard to ground of this nature, be before the enemy in occupying the raised and sunny spots, and carefully guard your line of supplies. Then you will be able to fight with advantage.
+
+4. Ground which can be abandoned but is hard to re-occupy is called ENTANGLING.
+
+5. From a position of this sort, if the enemy is unprepared, you may sally forth and defeat him. But if the enemy is prepared for your coming, and you fail to defeat him, then, return being impossible, disaster will ensue.
+
+6. When the position is such that neither side will gain by making the first move, it is called TEMPORIZING ground.
+
+7. In a position of this sort, even though the enemy should offer us an attractive bait, it will be advisable not to stir forth, but rather to retreat, thus enticing the enemy in his turn; then, when part of his army has come out, we may deliver our attack with advantage.
+
+8. With regard to NARROW PASSES, if you can occupy them first, let them be strongly garrisoned and await the advent of the enemy.
+
+9. Should the army forestall you in occupying a pass, do not go after him if the pass is fully garrisoned, but only if it is weakly garrisoned.
+
+10. With regard to PRECIPITOUS HEIGHTS, if you are beforehand with your adversary, you should occupy the raised and sunny spots, and there wait for him to come up.
