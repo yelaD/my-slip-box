@@ -533,3 +533,30 @@ Author: Sun Tzu
 9. Should the army forestall you in occupying a pass, do not go after him if the pass is fully garrisoned, but only if it is weakly garrisoned.
 
 10. With regard to PRECIPITOUS HEIGHTS, if you are beforehand with your adversary, you should occupy the raised and sunny spots, and there wait for him to come up.
+
+11. If the enemy has occupied them before you, do not follow him, but retreat and try to entice him away.
+
+12. If you are situated at a great distance from the enemy, and the strength of the two armies is equal, it is not easy to provoke a battle, and fighting will be to your disadvantage.
+
+13. These six are the principles connected with Earth. The general who has attained a responsible post must be careful to study them.
+
+14. Now an army is exposed to six several calamities, not arising from natural causes, but from faults for which the general is responsible. These are:
+	1. Flight;
+	2. insubordination;
+	3. collapse;
+	4. ruin;
+	5. disorganization;
+	6. rout;
+
+15. Other conditions being equal, if one force is hurled against another ten times its size, the result will be the FLIGHT of the former.
+
+16. When the common soldiers are too strong and their officers too weak, the result is INSUBORDINATION. When the officers are too strong and the common soldiers too weak, the result is COLLAPSE.
+
+17.  When the higher officers are angry and insubordinate, and on meeting the enemy give battle on their own account from a feeling of resentment, before the commander-in-chief can tell whether or no he is in a position to fight, the result is RUIN.
+
+18. When the general is weak and without authority; when his orders are not clear and distinct; when there are no fixed duties assigned to officers and men, and the ranks are formed in a slovenly haphazard manner, the result is utter DISORGANIZATION.
+
+19. When a general, unable to estimate the enemy's strength, allows an inferior force to engage a larger one, or hurls a weak detachment against a powerful one, and neglects to place picked soldiers in the front rank, the result must be ROUT.
+
+20. These are six ways of courting defeat, which must be carefully noted by the general who has attained a responsible post.
+
