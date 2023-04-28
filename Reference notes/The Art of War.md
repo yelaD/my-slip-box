@@ -560,3 +560,27 @@ Author: Sun Tzu
 
 20. These are six ways of courting defeat, which must be carefully noted by the general who has attained a responsible post.
 
+21. The natural formation of the country is the soldier's best ally; but a power of estimating the adversary, of controlling the forces of victory, and of shrewdly calculating difficulties, dangers and distances, constitutes the test of a great general.
+
+22. He who knows these things, and in fighting puts his knowledge into practice, will win his battles. He who knows them not, nor practices them, will surely be defeated.
+
+23. If fighting is sure to result in victory, then you must fight, even though the ruler forbit it; if fighting will not result in victory, then you must not fight even at the ruler's bidding.
+
+24. The general who advances without coveting fame and retreats without fearing disgrace, whose only thought is to protect his country and do good service for his sovereign, is the jewel of the kingdom.
+
+25. Regard your soldiers as your children, and they will follow you into the deepest valleys; look upon them as your own beloved sons, and they will stand by you even unto death.
+
+26. If, however, you are indulgent, but unable to make your authority felt; kind-hearted, but unable to enforce your commands; and incapable; moreover, of quelling disorder: then your soldiers must be liked to spoilt children; they are useless for any practical purpose.
+
+27. If we know that our own men are in a condition to attack, but are unaware that the enemy is not open to attack, we have gone only halfway towards victory.
+
+28. If we know that the enemy is open to attack, but are unaware that our own men are not in a condition to attack, we have gone only halfway towards victory.
+
+29. If we know that the enemy is open to attack, and also know that our men are in a condition to attack, but are unaware that the nature of the ground makes fighting impracticable, we have still only gone halfway towards victory.
+
+30. Hence the experienced soldier, once in motion, is never bewildered; once he has broken camp, he is never at a loss.
+
+31. Hence the saying: If you know the enemy and you know yourself, your victory will not stand in doubt; if you know Heaven and know Earth, you may make your victory complete.
+
+
+
