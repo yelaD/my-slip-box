@@ -584,3 +584,33 @@ Author: Sun Tzu
 
 
 
+
+### 11. The Nine Situations
+1. Sun Tzu said: The art of war recognizes nine varieties of ground:
+	1. Dispersive ground;
+	2. facile ground;
+	3. contentious ground;
+	4. open ground;
+	5. ground of intersecting highways;
+	6. serious ground;
+	7. difficult ground;
+	8. hemmed-in ground;
+	9. desperate ground;
+
+2. When a chieftain is fighting in his own territory, it is dispersive ground.
+
+3. When he has penetrated into hostile territory, but to no great distance, it is facile ground.
+
+4. Ground the possession of which imports great advantage to either side, is contentious ground.
+
+5. Ground on which each side has liberty of movement is open ground.
+
+6. Ground which forms the key to three contiguous states, so that he who occupies is first has most of the Empire at his command, is a ground of intersecting highways.
+
+7. When an army has penetrated in to the heart of a hostile country, leaving a number of fortified cities in its rear, it is serious ground.
+
+8. Mountain forests, rugged steeps, mashes and fens—all country that is hard to traverse: this is difficult ground.
+
+9. Ground which is reached through narrow gorges, and from which we can only retire by tortuous paths, so that a small number of the enemy would suffice to crush a large body of our men: this is hemmed-in ground.
+
+10. Ground on which we can only be saved from destruction by fighting without delay, is desperate ground.

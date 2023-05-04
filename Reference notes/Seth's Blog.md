@@ -1925,3 +1925,45 @@ Here's a different version: A business is a construct, an association of human b
 
 ---
 June 7, 2017
+##### What 99% looks like
+I did an interview with a leading Turkish vlogger. He sent me his work (in Turkish) and of course, the thing I noticed was this:
+![[what 99% looks like.png]]
+76 people who saw this interview took the time to give it a thumbs down. The interviewer flew across the world and shared his work for free, but 76 people hated it enough to affirmatively vote it down.
+
+Of course, 1% of 108,000 is about a thousand. This is less than a tenth of that.
+
+In fact, 1% of the 10,000 people who voted it up is 100. It's even less than that.
+
+In just about everything we do, 99% approval is astonishing. 
+
+Except online.
+
+Because online, our lizard brain goes straight to the tiny speck, the little number that's easy to magnify.
+
+Ignore it. Shun the non-believers and ship your work.
+
+---
+June 13, 2017
+##### Mental load and the worry cache
+It's well known that the team that wins an Olympic relay isn't the fastest at running or swimming—it's the team that handles the handoffs the best.
+
+The same thing is true of your job. The tasks could be done by many people, but someone who is great at your job embraces the mental effort necessary to do the task switching, to read between the lines, to keep many balls going at the same time. Strategy and tactics both.
+
+Sometimes, we think that these are the things that get in the way of our work. In fact, they *are* the work.
+
+Writing a sentence is easy. Deciding what to write in the next sentence is hard.
+
+Making decisions is exhausting. It involves perception and analysis and most of all, taking responsibility. Pretending to lead and manage is a trivial task, because there's no, "what if?"
+
+It turns out that the mental load of management is primarily around experiencing failure.
+
+Actual failure, sure, but mostly potential failure. Imagining failure in advance. All the current things that could go wrong. And more important, the things you're not doing that will be obvious oversights later. Our brains work overtime to cycle through these, to learn to see around corners, to have the guts to delegate without doing the work ourselves (even though that creates more imagined points of failure). Scan, touch, consider, analyze, repeat.
+
+The other thing that's a huge load: *Worry*. Unlike all the things I've already mentioned, worry isn't actually part of your job. Worry (expressed through non-productive pessimistic cycles over things out of your control) is antithetical to the work you've agreed to do.
+
+Clear your cache of worry.
+
+It'll free up your processor to focus on the useful stuff.
+
+---
+June 15, 2017
