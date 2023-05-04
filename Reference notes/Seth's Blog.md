@@ -1967,3 +1967,23 @@ It'll free up your processor to focus on the useful stuff.
 
 ---
 June 15, 2017
+##### You are more powerful than you think
+You are more powerful than you think
+It's bigger than you
+Leaders are made, not born
+Leveling up is a choice
+They say you can't, we know you can
+Dance with fear
+See, assert, change
+Overwhelmed is temporary
+Out loud, in public
+Hard work is far better than busy work
+The crowd is wrong. The critics are wrong. Useful feedback is precious…
+Management matters. So does leadership…
+"Here, I made this." Or possibly, "Here, we made this."
+See the end before you begin the journey
+Culture defeats everything
+It's personal
+
+---
+June 24, 2017

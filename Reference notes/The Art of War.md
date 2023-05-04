@@ -614,3 +614,24 @@ Author: Sun Tzu
 9. Ground which is reached through narrow gorges, and from which we can only retire by tortuous paths, so that a small number of the enemy would suffice to crush a large body of our men: this is hemmed-in ground.
 
 10. Ground on which we can only be saved from destruction by fighting without delay, is desperate ground.
+
+11. On dispersive ground, therefore, fight not. On facile ground, halt not. On contentious ground, attack not.
+
+12. On open ground, do not try to block the enemy's way. On the ground of intersecting highways, join hands with your allies.
+
+13. On serious ground, gather in plunder. In difficult ground, keep steadily on the march.
+
+14. On hemmed-in ground, resort to stratagem. On desperate ground, fight.
+
+15. Those who were called skillful leaders of old know how to drive a wedge between the enemy's frond and rear; to prevent cooperation between his large and small division; to hinder the good troops from rescuing the bad, the officers from rallying their men.
+
+16. When the enemy's men were united, they managed to keep them in disorder.
+
+17. When it was to their advantage, they made forward move; when otherwise, they stopped still.
+
+18. If asked how to cope with a great host of the enemy in orderly array and on the point of marching to the attack, I should say: "Begin by seizing something which your opponent holds dear; then he will be amenable to you will."
+
+19. Rapidity is the essence of war: take advantage of the enemy's unreadiness, make your way by unexpected routes, and attack unguarded spots.
+
+20. The following are the principles to be observed by an invading force: The further you penetrate into a country, the greater will be the solidarity of your troops, and thus the defenders will not prevail against you.
+
